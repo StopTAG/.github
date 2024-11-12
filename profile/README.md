@@ -32,7 +32,7 @@ Please explore the [TAG Wiki](https://github.com/nameless-and-blameless/TAG/wiki
 * [The Creator](https://github.com/nameless-and-blameless/TAG/wiki/The-Creator)
   - [The Creator's two servants](https://github.com/nameless-and-blameless/TAG/wiki/The-Creator's-two-servants)
 * [The Creator's Statement on Crimes](https://github.com/nameless-and-blameless/TAG/wiki/Statement-on-Crimes)
-  - [Presidents Biden & Trump Make TOP-SECRET Trip to Atlanta](https://github.com/nameless-and-blameless/TAG/wiki/Presidential-Visit)
+  - [Presidents Biden & Trump Make TOP-SECRET Trip to Atlanta](https://github.com/nameless-and-blameless/TAG/wiki/Presidential-Mission)
 * [The Creator’s Influence on the Arts to Reveal Hidden Realities and Provide Direct Access to Truth](https://github.com/nameless-and-blameless/TAG/wiki/The-Creator-and-The-Arts)
   - [Unpacking: Shady Love](https://github.com/nameless-and-blameless/TAG/wiki/Shady-Love)
 
@@ -71,7 +71,7 @@ Please explore the [TAG Wiki](https://github.com/nameless-and-blameless/TAG/wiki
 * [The CIA's masquerade: Mount Calvary Missionary Baptist Church, Inc.](https://github.com/nameless-and-blameless/TAG/wiki/_MCMBCI)
 * [The Revelation & Apocalypse](https://github.com/nameless-and-blameless/TAG/wiki/Revelation)
   - [The Judgment of Satan, Donald J. Trump](https://github.com/nameless-and-blameless/TAG/wiki/The-Judgment-of-Satan)
-  - [The TOP-SECRET Presidential Mission to Kill the Creator's servants](https://github.com/nameless-and-blameless/TAG/wiki/Presidential-Visit)
+  - [The TOP-SECRET Presidential Mission to Kill the Creator's servants](https://github.com/nameless-and-blameless/TAG/wiki/Presidential-Mission)
   
 ## Media
 The Creator has instructed His two servants to hold a media briefing to shed light on The American Genocide. The briefing will take place at noon immediately following the seismic earthquakes, and may be held on Sunday, at the site of Orr Chapel, and the Orr Chapel and Sheepneck cemeteries, 8397 West Sheepneck Road, Sandy Hook (Mount Pleasant), Tennessee.
