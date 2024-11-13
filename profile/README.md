@@ -15,8 +15,9 @@ By the United Nations definition, TAG meets all of the criteria necessary to be 
 The Creator, revered globally across cultures, is the One who desired to create life and, therefore, had to create the universe to support it. He is the Alpha and the Omega, and the Great "I Am." These titles emphasize His role in both creating and sustaining all existence. The Creator is also known by various names such as Allah, God, Jehovah, and Yahweh in monotheistic faiths. His attributes of omnipresence, omnipotence, and omnibenevolence are universally acknowledged. The Creator mentioned here is the same entity referenced in the U.S. Declaration of Independence. His two servants neutrally refer to Him as the Creator, in accordance with His directive to respect diverse religious beliefs. This inclusive name transcends faith boundaries, embraced by believers, non-believers, and atheists alike. [Read more.](https://github.com/nameless-and-blameless/TAG/wiki/The-Creator)
 
 ## Latest
-### Trunp in Atlanta
+### Trump in Atlanta
 November 12, 2024 8:00 Eastern - Capitol View, Atlanta
+
 The foremost beneficiary and top perpetrator of The American Genocide (TAG), Former President and President-elect Donald J. Trump, is currently in Atlanta at the Phoenix House, personally overseeing yet another attempt to eliminate one of the Creator's two servants who resides there. Trump’s actions are driven by his aspiration to ascend as the supreme leader of an authoritarian regime in the United States.
 
 TAG is considered a pivotal step by the perpetrators in their pursuit of establishing an authoritarian regime. Numerous attempts have been made at the direction of TAG perpetrators on the life of the Creator’s servant, aiming to halt his divinely directed work and destroy any incriminating evidence in his possession. However, each attempt has failed due to the Creator’s protective intervention.
