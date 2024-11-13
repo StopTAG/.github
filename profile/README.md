@@ -75,6 +75,9 @@ Please explore the [TAG Wiki](https://github.com/nameless-and-blameless/TAG/wiki
 * [The solutions for alpha males](https://github.com/nameless-and-blameless/TAG/wiki/Targeting-Alpha-Males)
 * [The Treatment of Alpha Males During The American Genocide](https://github.com/nameless-and-blameless/TAG/wiki/Treatment-of-Alpha-Males-during-TAG)
 
+### The Impoverished
+* [How TAG Perpetrators are eliminating the impoverished at Phantom Pantriea](https://github.com/nameless-and-blameleaa/TAG/wiki/Phantom-Pantriea)
+
 ### Arts and Murders
 * [Numerous performing artists and musicians murdered](https://github.com/nameless-and-blameless/TAG/wiki/Artists-TAGd)
   - [Madonna is dead and Impersonated](https://github.com/nameless-and-blameless/TAG/wiki/Madonna)
