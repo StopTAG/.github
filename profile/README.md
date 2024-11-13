@@ -73,7 +73,7 @@ Please explore the [TAG Wiki](https://github.com/nameless-and-blameless/TAG/wiki
 * [The Treatment of Alpha Males During The American Genocide](https://github.com/nameless-and-blameless/TAG/wiki/Treatment-of-Alpha-Males-during-TAG)
 
 ### The Impoverished
-* [How TAG Perpetrators are eliminating the impoverished at Phantom Pantriea](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Pantries)
+* [How TAG Perpetrators are eliminating the impoverished at Phantom Pantries](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Pantries)
 
 ### Arts and Murders
 * [Numerous performing artists and musicians murdered](https://github.com/nameless-and-blameless/TAG/wiki/Artists-TAGd)
