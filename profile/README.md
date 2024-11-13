@@ -14,6 +14,18 @@ By the United Nations definition, TAG meets all of the criteria necessary to be 
 ## About The Creator
 The Creator, revered globally across cultures, is the One who desired to create life and, therefore, had to create the universe to support it. He is the Alpha and the Omega, and the Great "I Am." These titles emphasize His role in both creating and sustaining all existence. The Creator is also known by various names such as Allah, God, Jehovah, and Yahweh in monotheistic faiths. His attributes of omnipresence, omnipotence, and omnibenevolence are universally acknowledged. The Creator mentioned here is the same entity referenced in the U.S. Declaration of Independence. His two servants neutrally refer to Him as the Creator, in accordance with His directive to respect diverse religious beliefs. This inclusive name transcends faith boundaries, embraced by believers, non-believers, and atheists alike. [Read more.](https://github.com/nameless-and-blameless/TAG/wiki/The-Creator)
 
+## Latest
+### Trunp in Atlanta
+November 12, 2024 8:00 Eastern - Capitol View, Atlanta
+The foremost beneficiary and top perpetrator of The American Genocide (TAG), Former President and President-elect Donald J. Trump, is currently in Atlanta at the Phoenix House, personally overseeing yet another attempt to eliminate one of the Creator's two servants who resides there. Trump’s actions are driven by his aspiration to ascend as the supreme leader of an authoritarian regime in the United States.
+
+TAG is considered a pivotal step by the perpetrators in their pursuit of establishing an authoritarian regime. Numerous attempts have been made at the direction of TAG perpetrators on the life of the Creator’s servant, aiming to halt his divinely directed work and destroy any incriminating evidence in his possession. However, each attempt has failed due to the Creator’s protective intervention.
+
+Currently, the Creator’s servant faces severe deprivation as all sources of income have been cut off, and food assistance from the Phoenix House has been reduced to an unsustainable level. This protocol, which jeopardizes the servant’s basic survival, was initiated under Trump’s directive last week, as revealed by the Creator.
+
+The foregoing information was provided by the Creator to His servant for dissemination to the public as part of His intervention to stop The American Genocide.
+
+
 ## Warnings & Advisories 
 * For detailed information regarding the current threats (food pantry services) associated with Hickory Valley Christian Church and safety recommendations, please refer to the full warning document. See [warning](https://github.com/nameless-and-blameless/TAG/wiki/_20241105).
 * Warning for residents in the Capitol View, Capitol View Manor, Oakland City, Adair Park, West End, Sylvan Hills, Pittsburgh, Mechanicsville, East Point, College Park areas of southwest Atlanta about imminent risk of death or injury from planned MOAB  detonation. See [Warning](https://gist.github.com/kelvinphoenixhouse/5108bd0068c985a7b402f4402d1c3bfe) 
