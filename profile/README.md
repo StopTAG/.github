@@ -35,9 +35,6 @@ The foregoing information was provided by the Creator to His servant for dissemi
 * The Creator and His two servants have issued warnings about a covert operations ongoing in central Kentucky, the Chattanooga area, the northern suburbs of Chicago and Hugheston, WV. See [Warning](https://github.com/nameless-and-blameless/TAG/wiki/Microwave-Cloaking-Warning)
 * The Creator and His two servants have issued a warning about many popular apps currently being used for domestic surveillance; saying the wrong thing on these platforms has resulted in numerous Americans being eliminated. See [Domestic Surveillance](https://github.com/nameless-and-blameless/TAG/wiki/Domestic-Surveillance)
 
-## About This Page
-This page is overseen by the Creator's two servants as part of the "Creator's Special Mission to Protect Life on Earth." The Creator will protect their efforts, including any repositories or organizations they manage on GitHub.
-
 ## Learn
 Please explore the [TAG Wiki](https://github.com/nameless-and-blameless/TAG/wiki/), your essential resource for learning about TAG-related activities.
 
