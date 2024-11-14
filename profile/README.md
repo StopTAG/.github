@@ -14,7 +14,7 @@ By the United Nations definition, TAG meets all of the criteria necessary to be 
 ## About The Creator
 The Creator, revered globally across cultures, is the One who desired to create life and, therefore, had to create the universe to support it. He is the Alpha and the Omega, and the Great "I Am." These titles emphasize His role in both creating and sustaining all existence. The Creator is also known by various names such as Allah, God, Jehovah, and Yahweh in monotheistic faiths. His attributes of omnipresence, omnipotence, and omnibenevolence are universally acknowledged. The Creator mentioned here is the same entity referenced in the U.S. Declaration of Independence. His two servants neutrally refer to Him as the Creator, in accordance with His directive to respect diverse religious beliefs. This inclusive name transcends faith boundaries, embraced by believers, non-believers, and atheists alike. [Read more.](https://github.com/nameless-and-blameless/TAG/wiki/The-Creator)
 
-## Latest
+## Latest TAG News
 ### Trump in Atlanta
 November 12, 2024 8:00 Eastern - Capitol View, Atlanta
 
@@ -31,64 +31,78 @@ The foregoing information was provided by the Creator to His servant for dissemi
 * Urgent warning about filing a missing peraons report in Kentucky or Tennessee. See [warning](/warnings/MPFAP-20241113.md)
 * Warning for residents in the Capitol View, Capitol View Manor, Oakland City, Adair Park, West End, Sylvan Hills, Pittsburgh, Mechanicsville, East Point, College Park areas of southwest Atlanta about imminent risk of death or injury from planned MOAB  detonation. See [Warning](https://gist.github.com/kelvinphoenixhouse/5108bd0068c985a7b402f4402d1c3bfe) 
 * September 21, 2024 – Intelligence gathered by the Creator’s servants reveals that the perpetrators of The American Genocide (TAG) are planning to escalate their attacks, now targeting mosques during worship and prayer services. See [Advisory](https://github.com/nameless-and-blameless/TAG/wiki/_JW20240922)
-* The Creator and His two servants have issued warnings about a covert operations ongoing in central Kentucky, the Chattanooga area, the northern suburbs of Chicago and Hugheston, WV. See [Warning](https://github.com/nameless-and-blameless/TAG/wiki/Microwave-Cloaking-Warning)
 * The Creator and His two servants have issued a warning about many popular apps currently being used for domestic surveillance; saying the wrong thing on these platforms has resulted in numerous Americans being eliminated. See [Domestic Surveillance](https://github.com/nameless-and-blameless/TAG/wiki/Domestic-Surveillance)
 
 ## Learn
 Please explore the [TAG Wiki](https://github.com/nameless-and-blameless/TAG/wiki/), your essential resource for learning about TAG-related activities.
 
-### The Creator and Servants
-* [The Creator](https://github.com/nameless-and-blameless/TAG/wiki/The-Creator)
-  - [The Creator's two servants](https://github.com/nameless-and-blameless/TAG/wiki/The-Creator's-two-servants)
-* [The Creator's Statement on Crimes](https://github.com/nameless-and-blameless/TAG/wiki/Statement-on-Crimes)
-  - [Presidents Biden & Trump Make TOP-SECRET Trip to Atlanta](https://github.com/nameless-and-blameless/TAG/wiki/Presidential-Mission)
-* [The Creator’s Influence on the Arts to Reveal Hidden Realities and Provide Direct Access to Truth](https://github.com/nameless-and-blameless/TAG/wiki/The-Creator-and-The-Arts)
-  - [Unpacking: Shady Love](https://github.com/nameless-and-blameless/TAG/wiki/Shady-Love)
+### TAG's Targeted Groups
+#### Christians (Church Massacres)
+| **Congregation (Location)** | **Demographics** | **Casualties** |
+|------------------------------|------------------|----------------|
+| [Mount Calvary Baptist Church (4742 Todds Road, Lexington, KY)](https://github.com/nameless-and-blameless/TAG/wiki/Mount-Calvary-Baptist-Church) | Predominantly African American | 127 |
+| [Lexington Bethel Baptist Church (4686 Todds Road, Lexington, KY)](https://github.com/nameless-and-blameless/TAG/wiki/Lexington-Bethel-Baptist-Church) | Predominantly Caucasian | 250+ |
+| [House of God (Georgetown Street, Lexington, KY)](https://github.com/nameless-and-blameless/TAG/wiki/House-of-God-(Georgetown-Street)) | Predominantly African American | 300+ |
+| [House of God (Broadway, Lexington, KY)](https://github.com/nameless-and-blameless/TAG/wiki/House-of-God-(Broadway)) | Predominantly African American | 300+ |
+| [Mount Zion Baptist Church (Georgetown, KY)](https://github.com/nameless-and-blameless/TAG/wiki/Mount-Zion-Baptist-Church) | Predominantly African American | 166 |
+| [Calvary Baptist Church (Lexington, KY)](https://github.com/nameless-and-blameless/TAG/wiki/Calvary-Baptist-Church) | Predominantly Caucasian | 400 |
+| [Hickory Valley Christian Church (Chattanooga, TN)](https://github.com/nameless-and-blameless/TAG/wiki/Hickory-Valley-Christian-Church) | Predominantly Caucasian | 1,000+ |
 
-### Massacres and Tragedies
+#### Alpha Males
+* [The Solutions for Alpha Males in TAG](https://github.com/nameless-and-blameless/TAG/wiki/Targeting-Alpha-Males)
+* [The Treatment of Alpha Males During TAG](https://github.com/nameless-and-blameless/TAG/wiki/Treatment-of-Alpha-Males-during-TAG)
+
+#### The Impoverished
+* [Phantom Pantries](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Pantries)
+
+### TAG's Early Stages
+#### Massacres and Tragedies
 * [Sandy Hook Massacre](https://github.com/nameless-and-blameless/TAG/wiki/Sandy-Hook-Massacre)
 * [Orr Chapel Tragedy](https://github.com/nameless-and-blameless/TAG/wiki/Orr-Chapel-Tragedy)
-* [The massacre of Mount Calvary Baptist Church, a predominantly black congregation in Lexington, KY on April 2, 2023](https://github.com/nameless-and-blameless/TAG/wiki/Mount-Calvary-Baptist-Church)
-* [The massacre of House of God on Georgetown Street, a predominantly black congregation in Lexington, KY in May 2023](https://github.com/nameless-and-blameless/TAG/wiki/House-of-God-(Georgetown-Street))
-* [The massacre of House of God on Broadway, a predominantly black congregation in Lexington, KY in May 2023](https://github.com/nameless-and-blameless/TAG/wiki/House-of-God-(Broadway))
-* [The massacre of Lexington Bethel Baptist Church, a predominantly white congregation in Lexington, KY in June 2023](https://github.com/nameless-and-blameless/TAG/wiki/Lexington-Bethel-Baptist-Church)
-* [The massacre of Mount Zion Baptist Church, a predominantly black congregation in Georgetown, KY](https://github.com/nameless-and-blameless/TAG/wiki/Mount-Zion-Baptist-Church)
-* [The massacre of Calvary Baptist Church, a predominantly white congregation in Lexington, KY on Mother's Day 2024](https://github.com/nameless-and-blameless/TAG/wiki/Calvary-Baptist-Church)
-* [The massacre of Hickory Valley Christian Church, a predominantly white congregation in suburban Chattanooga on Mother's Day 2024](https://github.com/nameless-and-blameless/TAG/wiki/Hickory-Valley-Christian-Church)
 
-### Notable Individuals
+#### Targeted Killings
 * [John Grootegoed and Gabrielle Galardo](https://github.com/nameless-and-blameless/TAG/wiki/John-and-Gabrille-Galardo-Grootegoed)
 * [Nanea Reeves](https://github.com/nameless-and-blameless/TAG/wiki/Nanea-Reeves)
 
-### Government and Cover-ups
-* [How the government uses Donald Trump to cover it up](https://github.com/nameless-and-blameless/TAG/wiki/Donald-J.-Trump)
-* [The cover-up operations that kill mourners at fake funerals designed to kill a victim's associates](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Funeral)
-  - [How attending the funeral of Rev. Duke Stone's phantom funeral resulted in the deaths of over 600 mourners, with Trump watching](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Funeral-of-Rev.-Duke-Stone)
-  - [How Trump used the phantom funeral of Zachary Stone to kill intentionally Senator Blackburn and others](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Funeral-of-Zachary-Stone)
-  - [How Trump and the perpetrators used the phantom funeral of Senator Marsha Blackburn to silence political opposition](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Funeral-of-Senator-Marsha-Blackburn)
+### The American Genocide 
+* [TAG](https://github.com/nameless-and-blameless/TAG/wiki/TAG)
+* [Tactics Used in TAG](https://github.com/nameless-and-blameless/TAG/wiki/Tactics-Utilized-In-TAG)
+* [Domestic Surveillance](https://github.com/nameless-and-blameless/TAG/wiki/Domestic-Surveillance)
+* [Mount Calvary Missionary Baptist Church, Inc.: The CIA's Masquerade](https://github.com/nameless-and-blameless/TAG/wiki/_MCMBCI)
 
-### Alpha Males and Genocide
-* [The solutions for alpha males](https://github.com/nameless-and-blameless/TAG/wiki/Targeting-Alpha-Males)
-* [The Treatment of Alpha Males During The American Genocide](https://github.com/nameless-and-blameless/TAG/wiki/Treatment-of-Alpha-Males-during-TAG)
+### TAG Orchestrators 
+* [The Creator's Statement on Crimes](https://github.com/nameless-and-blameless/TAG/wiki/Statement-on-Crimes)
+  - [TOP-SECRET Presidential Mission](https://github.com/nameless-and-blameless/TAG/wiki/Presidential-Mission)
+* [President Donald J. Trump](https://github.com/nameless-and-blameless/TAG/wiki/Donald-J.-Trump)
+  - [The Judgment of Satan](https://github.com/nameless-and-blameless/TAG/wiki/The-Judgment-of-Satan)
 
-### The Impoverished
-* [How TAG Perpetrators are eliminating the impoverished at Phantom Pantries](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Pantries)
+### TAG Orchestrations 
+* [Phantom Funerals](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Funeral)
+  - [Rev. Duke Stone](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Funeral-of-Rev.-Duke-Stone)
+  - [Zachary Stone](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Funeral-of-Zachary-Stone)
+  - [Senator Marsha Blackburn](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Funeral-of-Senator-Marsha-Blackburn)
+* [Phantom Pantries](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Pantries)
 
-### Arts and Murders
-* [Numerous performing artists and musicians murdered](https://github.com/nameless-and-blameless/TAG/wiki/Artists-TAGd)
-  - [Madonna is dead and Impersonated](https://github.com/nameless-and-blameless/TAG/wiki/Madonna)
+### The Creator and His servants
+* [The Creator](https://github.com/nameless-and-blameless/TAG/wiki/The-Creator)
+  - [His two servants](https://github.com/nameless-and-blameless/TAG/wiki/The-Creator's-two-servants)
+  - [The Revelation & The Apocalypse](https://github.com/nameless-and-blameless/TAG/wiki/Revelation)
+  - [The Rapture](https://github.com/nameless-and-blameless/TAG/wiki/The-Rapture)
 
-### Additional Insights
-* [Why 911 failed & How they keep a genocide hidden](https://github.com/nameless-and-blameless/TAG/wiki/Tactics-Utilized-In-TAG)
-* [The CIA's masquerade: Mount Calvary Missionary Baptist Church, Inc.](https://github.com/nameless-and-blameless/TAG/wiki/_MCMBCI)
-* [The Revelation & Apocalypse](https://github.com/nameless-and-blameless/TAG/wiki/Revelation)
-  - [The Judgment of Satan, Donald J. Trump](https://github.com/nameless-and-blameless/TAG/wiki/The-Judgment-of-Satan)
-  - [The TOP-SECRET Presidential Mission to Kill the Creator's servants](https://github.com/nameless-and-blameless/TAG/wiki/Presidential-Mission)
-  
+### Music
+* [The Creator’s Influence on the Arts to Reveal Hidden Realities and Provide Direct Access to Truth](https://github.com/nameless-and-blameless/TAG/wiki/The-Creator-and-The-Arts)
+  - [Unpacking: Shady Love](https://github.com/nameless-and-blameless/TAG/wiki/Shady-Love)
+  - [Unpacking: Before the Great War](https://github.com/nameless-and-blameless/TAG/wiki/Before-the-Great-War)
+  - [Unpacking: House of Love](https://github.com/nameless-and-blameless/TAG/wiki/House-of-Love)
+  - [Unpacking: Miss Lady DJ](https://github.com/nameless-and-blameless/TAG/wiki/Miss-Lady-DJ)
+  - [Unpacking: Cream](https://github.com/nameless-and-blameless/TAG/wiki/Cream)
+  - [Unpacking: Little Packet](https://github.com/nameless-and-blameless/TAG/wiki/Little-Packet)
+  - [Unpacking: Stranger Things '97](https://github.com/nameless-and-blameless/TAG/wiki/Strangest-Things-'97)
+* [Artists in TAG](https://github.com/nameless-and-blameless/TAG/wiki/Artists-TAGd) 
+  - [Madonna: Murdered and Impersonated](https://github.com/nameless-and-blameless/TAG/wiki/Madonna)
+
 ## Media
 The Creator has instructed His two servants to hold a media briefing to shed light on The American Genocide. The briefing will take place at noon immediately following the seismic earthquakes, and may be held on Sunday, at the site of Orr Chapel, and the Orr Chapel and Sheepneck cemeteries, 8397 West Sheepneck Road, Sandy Hook (Mount Pleasant), Tennessee.
-
-
 
 > [!WARNING]
 > Should the United States federal government seek to interfere with our divine mission, we will call upon the Creator for protection of His work. Thank you for your understanding and respect.
