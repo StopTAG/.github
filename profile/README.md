@@ -28,6 +28,7 @@ The foregoing information was provided by the Creator to His servant for dissemi
 
 
 ## Warnings & Advisories 
+* Proofread: Urgent warning for people missing others after they went to a food assistance program about filing a missing persons report. See [warning](/warnings/MPFAP-20241113.md)
 * For detailed information regarding the current threats (food pantry services) associated with Hickory Valley Christian Church and safety recommendations, please refer to the full warning document. See [warning](https://github.com/nameless-and-blameless/TAG/wiki/_20241105).
 * Warning for residents in the Capitol View, Capitol View Manor, Oakland City, Adair Park, West End, Sylvan Hills, Pittsburgh, Mechanicsville, East Point, College Park areas of southwest Atlanta about imminent risk of death or injury from planned MOAB  detonation. See [Warning](https://gist.github.com/kelvinphoenixhouse/5108bd0068c985a7b402f4402d1c3bfe) 
 
