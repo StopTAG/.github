@@ -29,9 +29,7 @@ The foregoing information was provided by the Creator to His servant for dissemi
 
 ## Warnings & Advisories 
 * Urgent warning about filing a missing peraons report in Kentucky or Tennessee. See [warning](/warnings/MPFAP-20241113.md)
-* For detailed information regarding the current threats (food pantry services) associated with Hickory Valley Christian Church and safety recommendations, please refer to the full warning document. See [warning](https://github.com/nameless-and-blameless/TAG/wiki/_20241105).
 * Warning for residents in the Capitol View, Capitol View Manor, Oakland City, Adair Park, West End, Sylvan Hills, Pittsburgh, Mechanicsville, East Point, College Park areas of southwest Atlanta about imminent risk of death or injury from planned MOAB  detonation. See [Warning](https://gist.github.com/kelvinphoenixhouse/5108bd0068c985a7b402f4402d1c3bfe) 
-
 * September 21, 2024 – Intelligence gathered by the Creator’s servants reveals that the perpetrators of The American Genocide (TAG) are planning to escalate their attacks, now targeting mosques during worship and prayer services. See [Advisory](https://github.com/nameless-and-blameless/TAG/wiki/_JW20240922)
 * The Creator and His two servants have issued warnings about a covert operations ongoing in central Kentucky, the Chattanooga area, the northern suburbs of Chicago and Hugheston, WV. See [Warning](https://github.com/nameless-and-blameless/TAG/wiki/Microwave-Cloaking-Warning)
 * The Creator and His two servants have issued a warning about many popular apps currently being used for domestic surveillance; saying the wrong thing on these platforms has resulted in numerous Americans being eliminated. See [Domestic Surveillance](https://github.com/nameless-and-blameless/TAG/wiki/Domestic-Surveillance)
