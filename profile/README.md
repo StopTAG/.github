@@ -52,8 +52,8 @@ Please explore the [TAG Wiki](https://github.com/nameless-and-blameless/TAG/wiki
 * [The Solutions for Alpha Males in TAG](https://github.com/nameless-and-blameless/TAG/wiki/Targeting-Alpha-Males)
 * [The Treatment of Alpha Males During TAG](https://github.com/nameless-and-blameless/TAG/wiki/Treatment-of-Alpha-Males-during-TAG)
 
-#### The Impoverished
-* [Phantom Pantries](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Pantries)
+#### The Impoverish
+* [Phantom Pantry](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Pantry)
 
 ### TAG's Early Stages
 #### Massacres and Tragedies
