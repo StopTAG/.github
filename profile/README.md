@@ -15,6 +15,13 @@ By the United Nations definition, TAG meets all of the criteria necessary to be 
 The Creator, revered globally across cultures, is the One who desired to create life and, therefore, had to create the universe to support it. He is the Alpha and the Omega, and the Great "I Am." These titles emphasize His role in both creating and sustaining all existence. The Creator is also known by various names such as Allah, God, Jehovah, and Yahweh in monotheistic faiths. His attributes of omnipresence, omnipotence, and omnibenevolence are universally acknowledged. The Creator mentioned here is the same entity referenced in the U.S. Declaration of Independence. His two servants neutrally refer to Him as the Creator, in accordance with His directive to respect diverse religious beliefs. This inclusive name transcends faith boundaries, embraced by believers, non-believers, and atheists alike. [Read more.](https://github.com/nameless-and-blameless/TAG/wiki/The-Creator)
 
 ## Latest TAG News
+### Members of Trump's Transition Team Witness Murder
+Several members of Trump's transition team who remained in Atlanta to oversee an operation to steal the mobile device used to update StopTAG and its associated repositories became an eyewitness to murder.
+
+The murder occurred after repeated failed attempts to obtain the device when an argument between the perpetrators resulted in one stabbing the other.  The witnesses were using microwave cloaking which renders them invisible to the naked eye.  Members of his transition team remained in the apartment of His servant when His servant went to seek help from Phoenix House staff.
+
+None of the individuals whom were in the apartment have come forward.  Atlanta Police have arrested the suspect and charged him with murder.  The Creator's servant was unharmed and still has the phone and other evidence in his possession, His servant has been moved to another facility, Welcome House, and remains under 24/7 surveillance.
+
 ### Trump in Atlanta
 November 12, 2024 8:00 Eastern - Capitol View, Atlanta
 
