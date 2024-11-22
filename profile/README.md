@@ -16,7 +16,7 @@ The Creator, revered globally across cultures, is the One who desired to create 
 
 ## Latest TAG News
 ### Members of Trump's Transition Team Witness Murder
-Several members of Trump's transition team who remained in Atlanta to oversee an operation to steal the mobile device used to update StopTAG and its associated repositories became an eyewitness to murder.
+On Monday November 18th, 2024 several members of Trump's transition team who remained in Atlanta to oversee an operation to steal the mobile device used to update StopTAG and its associated repositories became an eyewitness to murder.
 
 The murder occurred after repeated failed attempts to obtain the device when an argument between the perpetrators resulted in one stabbing the other.  The witnesses were using microwave cloaking which renders them invisible to the naked eye.  Members of his transition team remained in the apartment of His servant when His servant went to seek help from Phoenix House staff.
 
