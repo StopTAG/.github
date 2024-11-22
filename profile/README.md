@@ -22,6 +22,8 @@ The murder occurred after repeated failed attempts to obtain the device when an 
 
 None of the individuals whom were in the apartment have come forward.  Atlanta Police have arrested the suspect and charged him with murder.  The Creator's servant was unharmed and still has the phone and other evidence in his possession, His servant has been moved to another facility, Welcome House, and remains under 24/7 surveillance.
 
+[Statement from Kelvin Williams](https://gist.github.com/kelvinwilliamslibrary/457158f8ea05c3ab51da7247e04f57c0)
+
 ### Trump in Atlanta
 November 12, 2024 8:00 Eastern - Capitol View, Atlanta
 
