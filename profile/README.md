@@ -16,13 +16,13 @@ The Creator, revered globally across cultures, is the One who desired to create 
 
 ## Latest TAG News
 ### Members of Trump's Transition Team Witness Murder
-On Monday November 18th, 2024 several members of Trump's transition team who remained in Atlanta to oversee an operation to steal the mobile device used to update StopTAG and its associated repositories became an eyewitness to murder.
+On Monday, November 18th, 2024, several members of Trump's transition team who remained in Atlanta to oversee an operation to steal the mobile device used to update StopTAG and its associated repositories became eyewitnesses to a murder.
 
-The murder occurred after repeated failed attempts to obtain the device when an argument between the perpetrators resulted in one stabbing the other.  The witnesses were using microwave cloaking which renders them invisible to the naked eye.  Members of his transition team remained in the apartment of His servant when His servant went to seek help from Phoenix House staff.
+The murder occurred after repeated failed attempts to obtain the device, when an argument between the perpetrators resulted in one fatally stabbing the other. According to the Creator, the perpetrators had been sent to visit His servant to obtain the device and eliminate His servant. The witnesses were using microwave cloaking, which renders them invisible to the naked eye. Members of Trump's transition team remained in the apartment of His servant when His servant went to seek help from Phoenix House staff.
 
-None of the individuals whom were in the apartment have come forward.  Atlanta Police have arrested the suspect and charged him with murder.  The Creator's servant was unharmed and still has the phone and other evidence in his possession, His servant has been moved to another facility, Welcome House, and remains under 24/7 surveillance.
+Members of Trump's transition team remained in the apartment even after it was declared a crime scene and during the investigation.
 
-[Statement from Kelvin Williams](https://gist.github.com/kelvinwilliamslibrary/457158f8ea05c3ab51da7247e04f57c0)
+None of the individuals who were in the apartment have come forward. Atlanta Police Department has arrested the suspect and charged him with murder. The Creator's servant was unharmed and still has the phone and other evidence in his possession. His servant has been moved to another facility, Welcome House, and remains under 24/7 surveillance.
 
 ### Trump in Atlanta
 November 12, 2024 8:00 Eastern - Capitol View, Atlanta
