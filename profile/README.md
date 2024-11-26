@@ -1,4 +1,6 @@
 ## The American Genocide: The Revelation from the Creator’s Special Mission
+> [!WARNING]
+> November 26, 2024 - [Phantom Pantry](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Pantry) operations likely ongoing at Hickory Valley Christian Church (Chattanooga, TN) and Mount Zion Baptist Church (Georgetown, KY).  Anyone visiting these churches seeking assistance will be killed. 
 
 ## About The American Genocide 
 The American Genocide is a covert and devastating campaign initiated in response to [Spark](https://github.com/nameless-and-blameless/TAG/wiki/Spark)—a gift from the Creator  that restores the human immune system to His designed function, allowing it to eliminate any disease not caused by organ failure or dysfunction. Spark's emergence threatened pharmaceutical companies' profits, leading Gilead Sciences and the CIA to launch a brutal campaign against those associated with Spark.
