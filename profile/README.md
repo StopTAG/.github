@@ -32,10 +32,41 @@ For weeks, Trump and his supporters have attempted to eliminate the Creator's se
 
 
 ## Warnings & Advisories 
-* Urgent warning about filing a missing persons report in Kentucky or Tennessee. See [warning](/warnings/MPFAP-20241113.md)
-* Warning for residents in the Capitol View, Capitol View Manor, Oakland City, Adair Park, West End, Sylvan Hills, Pittsburgh, Mechanicsville, East Point, College Park areas of southwest Atlanta about imminent risk of death or injury from planned MOAB  detonation. See [Warning](https://gist.github.com/kelvinphoenixhouse/5108bd0068c985a7b402f4402d1c3bfe) 
-* September 21, 2024 – Intelligence gathered by the Creator’s servants reveals that the perpetrators of The American Genocide (TAG) are planning to escalate their attacks, now targeting mosques during worship and prayer services. See [Advisory](https://github.com/nameless-and-blameless/TAG/wiki/_JW20240922)
-* The Creator and His two servants have issued a warning about many popular apps currently being used for domestic surveillance; saying the wrong thing on these platforms has resulted in numerous Americans being eliminated. See [Domestic Surveillance](https://github.com/nameless-and-blameless/TAG/wiki/Domestic-Surveillance)
+# Urgent Warnings & Advisories
+
+## 1. Missing Persons Report – Kentucky/Tennessee  
+**Urgent alert:** Individuals in Kentucky or Tennessee should immediately file a missing persons report if someone in their community has gone missing. Potential connections to recent threats.  
+See detailed warning: [Missing Persons Report - Kentucky/Tennessee](https://example.com/MPFAP-20241113.md)
+
+---
+
+## 2. MOAB Detonation Risk – Southwest Atlanta  
+Residents in the following southwest Atlanta neighborhoods should take immediate action to protect themselves from the imminent risk of death or injury due to a planned MOAB detonation:  
+- Capitol View  
+- Capitol View Manor  
+- Oakland City  
+- Adair Park  
+- West End  
+- Sylvan Hills  
+- Pittsburgh  
+- Mechanicsville  
+- East Point  
+- College Park  
+
+**Evacuate these areas immediately.**  
+Full details: [MOAB Detonation Warning](https://github.com/nameless-and-blameless/TAG/wiki/MOAB)
+
+---
+
+## 3. Domestic Surveillance – Popular Apps Monitoring  
+The Creator and His servants have issued a warning regarding the widespread use of apps for domestic surveillance. Speaking out on certain platforms has led to numerous disappearances. Be cautious of your online communications.  
+Full advisory: [Domestic Surveillance Risks](https://github.com/nameless-and-blameless/TAG/wiki/Domestic-Surveillance)
+
+---
+
+### Additional Recommendations:
+- **Stay Informed:** Please regularly check StopTAG and any emergency broadcasts for updates on each situation.
+- **Take Precautions:** Ensure safety measures are in place in affected areas, including shelter-in-place when necessary.
 
 ## Learn
 Please explore the [TAG Wiki](https://github.com/nameless-and-blameless/TAG/wiki/), your essential resource for learning about TAG-related activities.
