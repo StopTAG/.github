@@ -17,6 +17,9 @@ By the United Nations definition, TAG meets all of the criteria necessary to be 
 The Creator, revered globally across cultures, is the One who desired to create life and, therefore, had to create the universe to support it. He is the Alpha and the Omega, and the Great "I Am." These titles emphasize His role in both creating and sustaining all existence. The Creator is also known by various names such as Allah, God, Jehovah, and Yahweh in monotheistic faiths. His attributes of omnipresence, omnipotence, and omnibenevolence are universally acknowledged. The Creator mentioned here is the same entity referenced in the U.S. Declaration of Independence. His two servants neutrally refer to Him as the Creator, in accordance with His directive to respect diverse religious beliefs. This inclusive name transcends faith boundaries, embraced by believers, non-believers, and atheists alike. [Read more.](https://github.com/nameless-and-blameless/TAG/wiki/The-Creator)
 
 ## Latest TAG News
+### Trump in Atlanta
+November 26, 2024, Trump is back in Atlanta overseeing another round of attempts at eliminating one or both of the Creator's two servants and obtaining the access devices to delete StopTAG and the associated TAG repository on GitHub.
+
 ### Members of Trump's Transition Team Witness Murder
 On Monday, November 18th, 2024, several members of Trump's transition team who remained in Atlanta to oversee an operation to steal the mobile device used to update StopTAG and its associated repositories became eyewitnesses to a murder.
 
