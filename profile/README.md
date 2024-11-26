@@ -17,32 +17,22 @@ By the United Nations definition, TAG meets all of the criteria necessary to be 
 The Creator, revered globally across cultures, is the One who desired to create life and, therefore, had to create the universe to support it. He is the Alpha and the Omega, and the Great "I Am." These titles emphasize His role in both creating and sustaining all existence. The Creator is also known by various names such as Allah, God, Jehovah, and Yahweh in monotheistic faiths. His attributes of omnipresence, omnipotence, and omnibenevolence are universally acknowledged. The Creator mentioned here is the same entity referenced in the U.S. Declaration of Independence. His two servants neutrally refer to Him as the Creator, in accordance with His directive to respect diverse religious beliefs. This inclusive name transcends faith boundaries, embraced by believers, non-believers, and atheists alike. [Read more.](https://github.com/nameless-and-blameless/TAG/wiki/The-Creator)
 
 ## Latest TAG News
-### Trump in Atlanta
-November 26, 2024, Trump is back in Atlanta overseeing another round of attempts at eliminating one or both of the Creator's two servants and obtaining the access devices to delete StopTAG and the associated TAG repository on GitHub.
+### **Trump in Atlanta – November 26, 2024**
+Former President Donald J. Trump is back in Atlanta, where he is overseeing yet another attempt to eliminate one of the Creator's two servants and seize the access devices required to delete StopTAG and its associated GitHub repository. This operation is part of a broader effort by Trump and his allies to disrupt the Creator's intervention and halt the movement to stop The American Genocide (TAG). According to the Creator, this latest development underscores the ongoing battle to prevent the perpetrators from further advancing their authoritarian agenda.
 
-### Members of Trump's Transition Team Witness Murder
-On Monday, November 18th, 2024, several members of Trump's transition team who remained in Atlanta to oversee an operation to steal the mobile device used to update StopTAG and its associated repositories became eyewitnesses to a murder.
+### **Members of Trump's Transition Team Witness Murder – November 18, 2024**
+In a shocking turn of events, several members of Trump's transition team, who had stayed behind in Atlanta to facilitate the theft of a mobile device crucial to updating StopTAG, became eyewitnesses to a murder. During an operation aimed at seizing the device and eliminating the Creator's servant, a violent argument broke out between the perpetrators, resulting in one person fatally stabbing another. The perpetrators had been sent to target the Creator's servant and acquire the device.
 
-The murder occurred during their operation to seize the device and eliminate His servant, when an argument between the perpetrators resulted in one fatally stabbing the other. According to the Creator, the perpetrators had been sent to visit His servant to obtain the device and eliminate His servant. The witnesses were using microwave cloaking, which renders them invisible to the naked eye. Members of Trump's transition team remained in the apartment of His servant when His servant went to seek help from Phoenix House staff.
+Despite being invisible to the naked eye due to their use of microwave cloaking technology, the witnesses remained in the apartment as the crime scene was investigated. They did not come forward to the authorities. The Atlanta Police Department has arrested the individual responsible for the murder and charged him with the crime. The Creator's servant, who was unharmed, has fully cooperated with law enforcement. He continues to hold possession of the access device and other critical evidence. For his safety, the Creator's servant has been relocated to a new facility, Welcome House, where he remains under 24/7 surveillance.
 
-Members of Trump's transition team remained in the apartment even after it was declared a crime scene and during the investigation.
+### **Trump in Atlanta – November 12, 2024**
+On November 12, 2024, Former President and President-elect Donald J. Trump was once again in Atlanta at the Phoenix House, personally overseeing an operation to eliminate one of the Creator's two servants residing there. Trump's actions are part of a broader campaign to solidify his control and establish an authoritarian regime in the United States—an agenda that is deeply tied to the ongoing efforts of The American Genocide (TAG).
 
-None of the individuals who were in the apartment have come forward. The Atlanta Police Department has arrested the suspect and charged him with murder. The Creator's servant was unharmed and has cooperated fully with the Atlanta Police Department; he still has possession of the access device and other evidence. His servant has been moved to another facility, Welcome House, and remains under 24/7 surveillance.
-
-### Trump in Atlanta
-November 12, 2024 8:00 Eastern - Capitol View, Atlanta
-
-The foremost beneficiary and top perpetrator of The American Genocide (TAG), Former President and President-elect Donald J. Trump, is currently in Atlanta at the Phoenix House, personally overseeing yet another attempt to eliminate one of the Creator's two servants who resides there. Trump’s actions are driven by his aspiration to ascend as the supreme leader of an authoritarian regime in the United States.
-
-TAG is considered a pivotal step by the perpetrators in their pursuit of establishing an authoritarian regime. Numerous attempts have been made at the direction of TAG perpetrators on the life of the Creator’s servant, aiming to halt his divinely directed work and destroy any incriminating evidence in his possession. However, each attempt has failed due to the Creator’s protective intervention.
-
-Currently, the Creator’s servant faces severe deprivation as all sources of income have been cut off, and food assistance from the Phoenix House has been reduced to an unsustainable level. This protocol, which jeopardizes the servant’s basic survival, was initiated under Trump’s directive last week, as revealed by the Creator.
-
-The foregoing information was provided by the Creator to His servant for dissemination to the public as part of His intervention to stop The American Genocide.
+For weeks, Trump and his supporters have attempted to eliminate the Creator's servant, aiming to destroy incriminating evidence and halt his mission. However, each attempt has failed due to the Creator's protective intervention. Despite these failures, the Creator’s servant now faces severe hardship, as his sources of income have been cut off, and food assistance from Phoenix House has been drastically reduced. This move, initiated under Trump's directive, threatens the servant’s basic survival and is a direct part of the perpetrators' strategy to disrupt the Creator’s intervention.
 
 
 ## Warnings & Advisories 
-* Urgent warning about filing a missing peraons report in Kentucky or Tennessee. See [warning](/warnings/MPFAP-20241113.md)
+* Urgent warning about filing a missing persons report in Kentucky or Tennessee. See [warning](/warnings/MPFAP-20241113.md)
 * Warning for residents in the Capitol View, Capitol View Manor, Oakland City, Adair Park, West End, Sylvan Hills, Pittsburgh, Mechanicsville, East Point, College Park areas of southwest Atlanta about imminent risk of death or injury from planned MOAB  detonation. See [Warning](https://gist.github.com/kelvinphoenixhouse/5108bd0068c985a7b402f4402d1c3bfe) 
 * September 21, 2024 – Intelligence gathered by the Creator’s servants reveals that the perpetrators of The American Genocide (TAG) are planning to escalate their attacks, now targeting mosques during worship and prayer services. See [Advisory](https://github.com/nameless-and-blameless/TAG/wiki/_JW20240922)
 * The Creator and His two servants have issued a warning about many popular apps currently being used for domestic surveillance; saying the wrong thing on these platforms has resulted in numerous Americans being eliminated. See [Domestic Surveillance](https://github.com/nameless-and-blameless/TAG/wiki/Domestic-Surveillance)
