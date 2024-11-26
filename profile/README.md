@@ -30,7 +30,6 @@ On November 12, 2024, Former President and President-elect Donald J. Trump was o
 
 For weeks, Trump and his supporters have attempted to eliminate the Creator's servant, aiming to destroy incriminating evidence and halt his mission. However, each attempt has failed due to the Creator's protective intervention. Despite these failures, the Creator’s servant now faces severe hardship, as his sources of income have been cut off, and food assistance from Phoenix House has been drastically reduced. This move, initiated under Trump's directive, threatens the servant’s basic survival and is a direct part of the perpetrators' strategy to disrupt the Creator’s intervention.
 
-
 ## Warnings & Advisories 
 # Urgent Warnings & Advisories
 
@@ -41,19 +40,23 @@ See detailed warning: [Missing Persons Report - Kentucky/Tennessee](https://exam
 ---
 
 ## 2. MOAB Detonation Risk – Southwest Atlanta  
-Residents in the following southwest Atlanta neighborhoods should take immediate action to protect themselves from the imminent risk of death or injury due to a planned MOAB detonation:  
-- Capitol View  
-- Capitol View Manor  
-- Oakland City  
-- Adair Park  
-- West End  
-- Sylvan Hills  
-- Pittsburgh  
-- Mechanicsville  
-- East Point  
-- College Park  
+A planned MOAB detonation is intended to eliminate one or both of the Creator's two servants, associated parties, and evidence of The American Genocide (TAG). This is part of a high-capital ruse.  
+The detonation is set to occur after the Creator’s intervention, which will include seismic earthquakes.  
 
-**Evacuate these areas immediately.**  
+**Critical Actions:**
+- **Immediate Evacuation Required:** Those in the following southwest Atlanta neighborhoods MUST evacuate to points **north of Midtown** or **south of the airport** immediately after any seismic earthquake event:
+  - Capitol View  
+  - Capitol View Manor  
+  - Oakland City  
+  - Adair Park  
+  - West End  
+  - Sylvan Hills  
+  - Pittsburgh  
+  - Mechanicsville  
+  - East Point  
+  - College Park  
+
+**EVACUATE and take cover immediately after any earthquake.**
 Full details: [MOAB Detonation Warning](https://github.com/nameless-and-blameless/TAG/wiki/MOAB)
 
 ---
@@ -65,7 +68,7 @@ Full advisory: [Domestic Surveillance Risks](https://github.com/nameless-and-bla
 ---
 
 ### Additional Recommendations:
-- **Stay Informed:** Please regularly check StopTAG and any emergency broadcasts for updates on each situation.
+- **Stay Informed:** Please regularly check **StopTAG** for updates on each situation.
 - **Take Precautions:** Ensure safety measures are in place in affected areas, including shelter-in-place when necessary.
 
 ## Learn
