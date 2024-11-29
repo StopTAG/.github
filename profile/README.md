@@ -100,10 +100,8 @@ Please explore the [TAG Wiki](https://github.com/nameless-and-blameless/TAG/wiki
 * [Phantom Pantry](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Pantry)
 
 #### Alpha Males
-* [The Solutions for Alpha Males in TAG](https://github.com/nameless-and-blamele
-ss/TAG/wiki/Targeting-Alpha-Males)
-* [The Treatment of Alpha Males During TAG](https://github.com/nameless-and-blam
-eless/TAG/wiki/Treatment-of-Alpha-Males-during-TAG)
+* [The Solutions for Alpha Males in TAG](https://github.com/nameless-and-blameless/TAG/wiki/Targeting-Alpha-Males)
+* [The Treatment of Alpha Males During TAG](https://github.com/nameless-and-blameless/TAG/wiki/Treatment-of-Alpha-Males-during-TAG)
 
 ### TAG's Early Stages
 #### Massacres and Tragedies
