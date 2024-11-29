@@ -13,8 +13,12 @@ The Creator wants everyone to know that He is fully aware of the situation, and 
 
 By the United Nations definition, TAG meets all of the criteria necessary to be a genocide. See [TAG: By Definition, A Genocide](https://github.com/nameless-and-blameless/TAG/wiki/TAGDEF).
 
+---
+
 ## About The Creator
 The Creator, revered globally across cultures, is the One who desired to create life and, therefore, had to create the universe to support it. He is the Alpha and the Omega, and the Great "I Am." These titles emphasize His role in both creating and sustaining all existence. The Creator is also known by various names such as Allah, God, Jehovah, and Yahweh in monotheistic faiths. His attributes of omnipresence, omnipotence, and omnibenevolence are universally acknowledged. The Creator mentioned here is the same entity referenced in the U.S. Declaration of Independence. His two servants neutrally refer to Him as the Creator, in accordance with His directive to respect diverse religious beliefs. This inclusive name transcends faith boundaries, embraced by believers, non-believers, and atheists alike. [Read more.](https://github.com/nameless-and-blameless/TAG/wiki/The-Creator)
+
+---
 
 ## Latest TAG News
 ### **Trump in Atlanta – November 26, 2024**
