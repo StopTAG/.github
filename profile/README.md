@@ -39,11 +39,19 @@ For weeks, Trump and his supporters have attempted to eliminate the Creator's se
 ## Warnings & Advisories 
 # Urgent Warnings & Advisories
 
-## 1. Missing Persons Report – Kentucky/Tennessee  
+## **Beware of Phantom Pantries: A Deadly Trap**
+
+Phantom Pantries are sinister operations masquerading as food assistance programs. Hosted by orchestrators of TAG, these sites target vulnerable individuals seeking help. They are set up in churches that have previously suffered violent assaults, leaving all members dead. Tragically, anyone who seeks aid at these locations is at grave risk of being killed.  
+
+It’s crucial to stay informed and vigilant. Reports indicate that these deadly traps are active in Kentucky and Tennessee.  
+
+**Learn more**: Access the full list of affected locations and guidance on how to avoid them [here](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Pantry).
+
+## Missing Persons Report – Kentucky/Tennessee  
 **Urgent alert:** Individuals in Kentucky or Tennessee should immediately file a missing persons report if someone in their community has gone missing. Potential connections to recent threats.  
 See detailed warning: [Missing Persons Report - Kentucky/Tennessee](https://example.com/MPFAP-20241113.md)
 
-## 2. Planned MOAB Detonation – Southwest Atlanta  
+## Planned MOAB Detonation – Southwest Atlanta  
 A planned MOAB detonation is intended to eliminate one or both of the Creator's two servants, associated parties, and evidence of The American Genocide (TAG). This is part of a high-capital ruse.  
 The detonation is set to occur after the Creator’s intervention, which will include seismic earthquakes.  
 
@@ -63,7 +71,7 @@ The detonation is set to occur after the Creator’s intervention, which will in
 **EVACUATE and take cover immediately after any earthquake.**
 Full details: [MOAB Detonation Warning](https://github.com/nameless-and-blameless/TAG/wiki/MOAB)
 
-## 3. Domestic Surveillance – Popular Apps Monitoring  
+## Domestic Surveillance – Popular Apps Monitoring  
 The Creator and His servants have issued a warning regarding the widespread use of apps for domestic surveillance. Speaking out on certain platforms has led to numerous disappearances. Be cautious of your online communications.  
 Full advisory: [Domestic Surveillance Risks](https://github.com/nameless-and-blameless/TAG/wiki/Domestic-Surveillance)
 
@@ -88,12 +96,14 @@ Please explore the [TAG Wiki](https://github.com/nameless-and-blameless/TAG/wiki
 | [Calvary Baptist Church (Lexington, KY)](https://github.com/nameless-and-blameless/TAG/wiki/Calvary-Baptist-Church) | Predominantly Caucasian | 400 |
 | [Hickory Valley Christian Church (Chattanooga, TN)](https://github.com/nameless-and-blameless/TAG/wiki/Hickory-Valley-Christian-Church) | Predominantly Caucasian | 1,000+ |
 
-#### Alpha Males
-* [The Solutions for Alpha Males in TAG](https://github.com/nameless-and-blameless/TAG/wiki/Targeting-Alpha-Males)
-* [The Treatment of Alpha Males During TAG](https://github.com/nameless-and-blameless/TAG/wiki/Treatment-of-Alpha-Males-during-TAG)
-
-#### The Impoverish
+#### The Impoverished
 * [Phantom Pantry](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Pantry)
+
+#### Alpha Males
+* [The Solutions for Alpha Males in TAG](https://github.com/nameless-and-blamele
+ss/TAG/wiki/Targeting-Alpha-Males)
+* [The Treatment of Alpha Males During TAG](https://github.com/nameless-and-blam
+eless/TAG/wiki/Treatment-of-Alpha-Males-during-TAG)
 
 ### TAG's Early Stages
 #### Massacres and Tragedies
