@@ -21,18 +21,13 @@ The Creator, revered globally across cultures, is the One who desired to create 
 ---
 
 ## Latest TAG News
-### **Trump in Atlanta – November 26, 2024**
-Former President Donald J. Trump is back in Atlanta, where he is overseeing yet another attempt to eliminate one of the Creator's two servants and seize the access devices required to delete StopTAG and its associated GitHub repository. This operation is part of a broader effort by Trump and his allies to disrupt the Creator's intervention and halt the movement to stop The American Genocide (TAG). According to the Creator, this latest development underscores the ongoing battle to prevent the perpetrators from further advancing their authoritarian agenda.
+### **Trump Returns to Atlanta**
+U.S. President-Elect Donald J. Trump secretly returned to Atlanta late on Friday night, November 29, 2024, and went to the Welcome House to oversee continued efforts by both the current and incoming administrations to eliminate one or both of the Creator's servants and to obtain the access device containing credentials for updating the StopTAG organization's repositories on GitHub. This visit follows his recent trips on November 12 and 26. One of the Creator's servants, who remains unharmed and unconcerned for his safety, was relocated to the Welcome House at 234 Memorial Drive by the CIA after an earlier attempt on November 18, during which one perpetrator was killed by another inside His servant's apartment. The Creator's servant continues to reside at the Welcome House as of this writing, securely retaining possession of the access device and expressing no concern for its safety or the safety of His servants. 
 
 ### **Members of Trump's Transition Team Witness Murder – November 18, 2024**
 In a shocking turn of events, several members of Trump's transition team, who had stayed behind in Atlanta to facilitate the theft of a mobile device crucial to updating StopTAG, became eyewitnesses to a murder. During an operation aimed at seizing the device and eliminating the Creator's servant, a violent argument broke out between the perpetrators, resulting in one person fatally stabbing another. The perpetrators had been sent to target the Creator's servant and acquire the device.
 
 Despite being invisible to the naked eye due to their use of microwave cloaking technology, the witnesses remained in the apartment as the crime scene was investigated. They did not come forward to the authorities. The Atlanta Police Department has arrested the individual responsible for the murder and charged him with the crime. The Creator's servant, who was unharmed, has fully cooperated with law enforcement. He continues to hold possession of the access device and other critical evidence. For his safety, the Creator's servant has been relocated to a new facility, Welcome House, where he remains under 24/7 surveillance.
-
-### **Trump in Atlanta – November 12, 2024**
-On November 12, 2024, Former President and President-elect Donald J. Trump was once again in Atlanta at the Phoenix House, personally overseeing an operation to eliminate one of the Creator's two servants residing there. Trump's actions are part of a broader campaign to solidify his control and establish an authoritarian regime in the United States—an agenda that is deeply tied to the ongoing efforts of The American Genocide (TAG).
-
-For weeks, Trump and his supporters have attempted to eliminate the Creator's servant, aiming to destroy incriminating evidence and halt his mission. However, each attempt has failed due to the Creator's protective intervention. Despite these failures, the Creator’s servant now faces severe hardship, as his sources of income have been cut off, and food assistance from Phoenix House has been drastically reduced. This move, initiated under Trump's directive, threatens the servant’s basic survival and is a direct part of the perpetrators' strategy to disrupt the Creator’s intervention.
 
 ---
 
