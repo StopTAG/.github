@@ -79,6 +79,14 @@ Full advisory: [Domestic Surveillance Risks](https://github.com/nameless-and-bla
 ## Learn
 Please explore the [TAG Wiki](https://github.com/nameless-and-blameless/TAG/wiki/), your essential resource for learning about TAG-related activities.
 
+### TAG Orchestrations
+| TAG Orchestrations          | Church Massacres                                                                                     | Phantom Funeral                                                                                           | Phantom Pantries                                                                                               |
+|----------------------------|------------------------------------------------------------------------------------------------------|----------------------------------------------------------------------------------------------------------|--------------------------------------------------------------------------------------------------------------|
+| **Description**             | Surprise assault on seated congregations during their weekly worship services, leaving no survivors. The church property is then masqueraded as part of the attack. | A mass execution disguised as a funeral, targeting easier victims of a TAG orchestration. Any mourner attending is killed, with the intention of eliminating associates and preventing discussion of disappearances. | A mass execution disguised as a food pantry. Those seeking assistance are killed. The food pantry is held by a masquerader on the property of a church that suffered an assault. |
+| **Survivors**               | Designed to leave no survivors. No survivors.                                                        |                                                                                                          |                                                                                                              |
+| **Recommended Actions**     | If your loved ones disappeared after attending an event at any of the churches listed below, DO NOT FILE A MISSING PERSONS REPORT. They have been used to identify and eliminate those who made the report, as well as anyone living with them. |                                                                                                          |                                                                                                              |
+
+
 ### TAG's Targeted Groups
 #### Christians (Church Massacres)
 | **Congregation (Location)** | **Demographics** | **Casualties** |
