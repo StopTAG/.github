@@ -42,8 +42,13 @@ It’s crucial to stay informed and vigilant. Reports indicate that these deadly
 
 **Learn more**: Access the full list of affected locations and guidance on how to avoid them [here](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Pantry).
 
-## Missing Persons Report – Kentucky/Tennessee  
-**Urgent alert:** Individuals in Kentucky or Tennessee should immediately file a missing persons report if someone in their community has gone missing. Potential connections to recent threats.  
+## Missing Persons Report – Kentucky/Tennessee
+
+**Urgent alert:** Individuals in Kentucky or Tennessee should NOT file a missing persons report with law enforcement if someone in their community has gone missing after attending any event at one of the churches listed below.  
+These reports are used to identify and eliminate those who may discuss victim disappearances or strange occurrences related to the churches.  
+
+The names of the churches listed below are the true and correct names. Please note that the masqueraded churches may have slight deviations in their names.
+
 See detailed warning: [Missing Persons Report - Kentucky/Tennessee](https://example.com/MPFAP-20241113.md)
 
 ## Planned MOAB Detonation – Southwest Atlanta  
@@ -78,14 +83,6 @@ Full advisory: [Domestic Surveillance Risks](https://github.com/nameless-and-bla
 
 ## Learn
 Please explore the [TAG Wiki](https://github.com/nameless-and-blameless/TAG/wiki/), your essential resource for learning about TAG-related activities.
-
-### TAG Orchestrations
-| TAG Orchestrations          | Church Massacres                                                                                     | Phantom Funeral                                                                                           | Phantom Pantries                                                                                               |
-|----------------------------|------------------------------------------------------------------------------------------------------|----------------------------------------------------------------------------------------------------------|--------------------------------------------------------------------------------------------------------------|
-| **Description**             | Surprise assault on seated congregations during their weekly worship services, leaving no survivors. The church property is then masqueraded as part of the attack. | A mass execution disguised as a funeral, targeting easier victims of a TAG orchestration. Any mourner attending is killed, with the intention of eliminating associates and preventing discussion of disappearances. | A mass execution disguised as a food pantry. Those seeking assistance are killed. The food pantry is held by a masquerader on the property of a church that suffered an assault. |
-| **Survivors**               | Designed to leave no survivors. No survivors.                                                        |
-| **Recommended Actions**     | If your loved ones disappeared after attending an event at any of the churches listed below, DO NOT FILE A MISSING PERSONS REPORT. They have been used to identify and eliminate those who made the report, as well as anyone living with them. |
-
 
 ### TAG's Targeted Groups
 #### Christians (Church Massacres)
