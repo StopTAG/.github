@@ -49,7 +49,7 @@ These reports are used to identify and eliminate those who may discuss victim di
 
 The names of the churches listed below are the true and correct names. Please note that the masqueraded churches may have slight deviations in their names.
 
-See detailed warning: [Missing Persons Report - Kentucky/Tennessee](https://example.com/MPFAP-20241113.md)
+See detailed warning: [Missing Persons Report - Kentucky/Tennessee](https://github.com/nameless-and-blameless/TAG/wiki/MPFAP-20241113)
 
 ## Planned MOAB Detonation – Southwest Atlanta  
 A planned MOAB detonation is intended to eliminate one or both of the Creator's two servants, associated parties, and evidence of The American Genocide (TAG). This is part of a high-capital ruse.  
