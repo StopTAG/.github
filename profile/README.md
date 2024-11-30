@@ -24,6 +24,8 @@ The Creator, revered globally across cultures, is the One who desired to create 
 ### **Trump Returns to Atlanta**
 U.S. President-Elect Donald J. Trump secretly returned to Atlanta late on Friday night, November 29, 2024, and went to the Welcome House to oversee continued efforts by both the current and incoming administrations to eliminate one or both of the Creator's servants and to obtain the access device containing credentials for updating the StopTAG organization's repositories on GitHub. This visit follows his recent trips on November 12 and 26. One of the Creator's servants, who remains unharmed and unconcerned for his safety, was relocated to the Welcome House at 234 Memorial Drive by the CIA after an earlier attempt on November 18, during which one perpetrator was killed by another inside His servant's apartment. The Creator's servant continues to reside at the Welcome House as of this writing, securely retaining possession of the access device and expressing no concern for its safety or the safety of His servants. 
 
+Related: [Trump Still Refuses to Legally Refute StopTAG Reporting](https://github.com/nameless-and-blameless/TAG/wiki/_TrumpCD)
+
 ### **Members of Trump's Transition Team Witness Murder – November 18, 2024**
 In a shocking turn of events, several members of Trump's transition team, who had stayed behind in Atlanta to facilitate the theft of a mobile device crucial to updating StopTAG, became eyewitnesses to a murder. During an operation aimed at seizing the device and eliminating the Creator's servant, a violent argument broke out between the perpetrators, resulting in one person fatally stabbing another. The perpetrators had been sent to target the Creator's servant and acquire the device.
 
