@@ -1,5 +1,8 @@
 ## The American Genocide: The Revelation from the Creator’s Special Mission
 > [!WARNING]
+> Urgent Warning for all residents in the Capitol View neighborhood and adjacent communities, including Capitol View Manor, Oakland City, Adair Park, West End, and Sylvan Hills...[See Warning](https://github.com/nameless-and-blameless/TAG/wiki/MOAB-20241201)
+
+> [!WARNING]
 > November 26, 2024 - [Phantom Pantry](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Pantry) operations likely ongoing at Hickory Valley Christian Church (Chattanooga, TN) and Mount Zion Baptist Church (Georgetown, KY).  Anyone visiting these churches seeking assistance will be killed. 
 
 ## About The American Genocide 
