@@ -1,6 +1,6 @@
 ## The American Genocide: The Revelation from the Creator’s Special Mission
 > [!WARNING]
-> Critical Advisory: Planned MOAB Detonation in West End Area
+> Critical Advisory: Planned MOAB Detonation in West End Area - TONIGHT (Dec 2-3, 2024)
 >
 > This is an urgent advisory issued by the Creator and His two servants regarding the planned detonation of a MOAB in the West End area of Atlanta, GA. The event is scheduled to occur between **1:00 AM and 5:00 AM** after the Creator's seismic interventions (earthquakes) to bring an end to The American Genocide (TAG), as part of the orchestrators of TAG's furthered attempts to keep it hidden. Detailed information on affected areas, evacuation instructions, and safety precautions can be found in the this advisory.  [Click here to read the full advisory](https://github.com/nameless-and-blameless/TAG/wiki/MOAB-20241201)
 
