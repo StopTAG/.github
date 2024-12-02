@@ -20,11 +20,11 @@ His two servants neutrally refer to Him as the Creator, in accordance with His d
 
 ## Named Areas and Neighborhoods in the Potential Blast Radius   
 
-  
+The following regions are categorized based on proximity to the detonation site:
 
-The following regions are categorized based on proximity to the detonation site:   
+### View Map
 
-  
+[Map of Blast Radii](https://imgur.com/RLQcMpM)  
 
 ### Immediate Blast Radius (1 Mile)   
 
