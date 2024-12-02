@@ -6,6 +6,7 @@
 >
 > [Click here to read the full advisory](https://github.com/nameless-and-blameless/TAG/wiki/MOAB-20241201)
 
+
 > [!WARNING]
 > November 26, 2024 - [Phantom Pantry](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Pantry) operations likely ongoing at Hickory Valley Christian Church (Chattanooga, TN) and Mount Zion Baptist Church (Georgetown, KY).  Anyone visiting these churches seeking assistance will be killed. 
 
