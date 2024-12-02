@@ -1,6 +1,10 @@
 ## The American Genocide: The Revelation from the Creator’s Special Mission
 > [!WARNING]
-> Urgent Warning for all residents in the Capitol View neighborhood and adjacent communities, including Capitol View Manor, Oakland City, Adair Park, West End, and Sylvan Hills...[See Warning](https://github.com/nameless-and-blameless/TAG/wiki/MOAB-20241201)
+> Critical Advisory: Planned MOAB Detonation in West End Area
+>
+> This is an urgent advisory issued by the Creator and His two servants regarding the planned detonation of a MOAB in the West End area of Atlanta, GA. The event is scheduled to occur between **1:00 AM and 5:00 AM** after seismic interventions, as part of the Creator’s directive. Detailed information on affected areas, evacuation instructions, and safety precautions can be found in the official advisory document.
+>
+> [Click here to read the full advisory](https://github.com/nameless-and-blameless/TAG/wiki/MOAB-20241201)
 
 > [!WARNING]
 > November 26, 2024 - [Phantom Pantry](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Pantry) operations likely ongoing at Hickory Valley Christian Church (Chattanooga, TN) and Mount Zion Baptist Church (Georgetown, KY).  Anyone visiting these churches seeking assistance will be killed. 
