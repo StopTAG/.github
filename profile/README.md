@@ -249,7 +249,7 @@ Please explore the [TAG Wiki](https://github.com/nameless-and-blameless/TAG/wiki
   - [Rev. Duke Stone](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Funeral-of-Rev.-Duke-Stone)
   - [Zachary Stone](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Funeral-of-Zachary-Stone)
   - [Senator Marsha Blackburn](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Funeral-of-Senator-Marsha-Blackburn)
-* [Phantom Pantries](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Pantries)
+* [Phantom Pantry](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Pantry)
 
 ### The Creator and His servants
 * [The Creator](https://github.com/nameless-and-blameless/TAG/wiki/The-Creator)
