@@ -22,9 +22,7 @@ His two servants neutrally refer to Him as the Creator, in accordance with His d
 
 The following regions are categorized based on proximity to the detonation site:
 
-### View Map
-
-[Map of Blast Radii](https://imgur.com/RLQcMpM)  
+![MOABZONES.png](https://raw.githubusercontent.com/nameless-and-blameless/TAG/refs/heads/master/assets/MOABZONES.png)
 
 ### Immediate Blast Radius (1 Mile)   
 
