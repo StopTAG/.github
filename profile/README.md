@@ -1,5 +1,5 @@
-> [!TIP]
-> StopTAG content will begin after this warning.  Thousands of lives will be lost tonight, please get the word out!!!
+> [!NOTE]
+> **Please note that the content you are about to view is part of an urgent advisory and should be given your immediate attention.** Normal StopTAG content begins below this advisory.
 
 # Emergency Alert: Planned MOAB Detonation in West End, Atlanta, GA   
 
@@ -133,6 +133,9 @@ Casualty projections vary based on population density and preparedness measures.
 This advisory reflects divine guidance and is part of a coordinated safety plan to minimize casualties and ensure public awareness. For further information, see [Planned MOAB Detonation](https://github.com/nameless-and-blameless/TAG/wiki/MOAB).   
 
 ---
+> [!NOTE]
+> Normal StopTAG content begins here.
+
 # The American Genocide (TAG): The Revelation from the Creator's Special Mission
 > [!WARNING]
 > November 26, 2024 - [Phantom Pantry](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Pantry) operations likely ongoing at Hickory Valley Christian Church (Chattanooga, TN) and Mount Zion Baptist Church (Georgetown, KY).  Anyone visiting these churches seeking assistance will be killed. 
