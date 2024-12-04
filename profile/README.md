@@ -6,6 +6,9 @@
 > [!TIP]
 > This warning is issued by the Creator (God) and His two servants (angels). If you are struggling to believe it, take a moment to say a prayer, asking for guidance and clarity. Trust that you will receive the understanding you seek.
 
+> [!IMPORTANT]
+> The world nor time is ending and never will. See Our statement below in **Latest TAG News**
+
 ## Who:
 Residents of the following Atlanta neighborhoods:  
 
@@ -141,6 +144,13 @@ The Creator, revered globally across cultures, is the One who desired to create 
 ---
 
 ## Latest TAG News
+### The Creator and His two servants Issue Statement: There Will Be A Forever Future!
+The Creator wants to assure everyone that no planet has ever gone fully extinct, and the Apocalypse is not the end of the world or time. The Creator's first creation was life, and to sustain it, He then created the universe. The Creator will always protect and nurture life on Earth, as He does throughout the universe. However, He upholds a non-interventionist policy that allows all life to make its own decisions and shape their own paths.
+
+The purpose of the Apocalypse is to shine a light on The American Genocide (TAG) and prevent the immense loss of life that would occur if it remained hidden. Even so, the Creator is not forcing individuals to act in any particular way. It is up to humanity, particularly the American public, to ensure TAG comes to a swift end. The Creator has deployed His two servants as instruments of justice to ensure the orchestrators of TAG are held accountable. It is important to understand that His servants, born where He places them, are only human beings and require the collective efforts of humanity to end TAG and bring the "powerful" to justice.
+
+Fear is not an option at this time. Prioritize preparedness for yourself and your family, and once safe, focus on assisting those in affected areas. The warnings and advisories issued by the Creator and His servants are meant to save lives. Let unity, courage, and action guide us through this critical moment.
+
 ### **Trump Returns to Atlanta** - November 30, 2024
 U.S. President-Elect Donald J. Trump secretly returned to Atlanta late on Friday night, November 29, 2024, and went to the Welcome House to oversee continued efforts by both the current and incoming administrations to eliminate one or both of the Creator's servants and to obtain the access device containing credentials for updating the StopTAG organization's repositories on GitHub. This visit follows his recent trips on November 12 and 26. One of the Creator's servants, who remains unharmed and unconcerned for his safety, was relocated to the Welcome House at 234 Memorial Drive by the CIA after an earlier attempt on November 18, during which one perpetrator was killed by another inside His servant's apartment. The Creator's servant continues to reside at the Welcome House as of this writing, securely retaining possession of the access device and expressing no concern for its safety or the safety of His servants. 
 
