@@ -24,12 +24,12 @@ An imminent risk of death or life-threatening injury exists due to the planned d
 - **For those STRONGLY ENCOURAGED to evacuate:**  
   There is significant risk of structural damage and injuries from blast effects.  
 
-The detonation is scheduled to occur immediately following seismic activity (earthquakes).  
+The detonation is scheduled to occur overnight immediately following seismic activity (earthquakes).  
 
 ## When:
 The detonation is scheduled to occur **overnight**, immediately following the earthquake. While Atlanta is not a region typically associated with high seismic activity, occasional minor earthquakes occur, mainly in northern and central Georgia. The most significant earthquake to affect Atlanta historically was the **1886 Charleston earthquake**, which caused damage as far as the city.  
 
-**IMPORTANT:** When you feel an earthquake, it is time to evacuate! The Creator assures that the earthquake itself will not cause injury or damage.  
+**IMPORTANT:** When you feel the earthquake, it is time to evacuate! The Creator assures that the earthquake itself will not cause injury or damage.  
 
 ## Where:
 Residents should evacuate immediately to areas:  
@@ -39,10 +39,10 @@ Residents should evacuate immediately to areas:
 This ensures avoidance of the blast radius, where the risk of death or serious injury is highest.  
 
 ## Why:
-The detonation, recently authorized by the President, will be carried out by a paramilitary contractor as foretold in **Biblical prophecy (Revelation)**. It is intended to obscure the ongoing **American Genocide** by targeting the Creator’s two servants, who are expected to be in southwest Atlanta preparing for a media briefing.  
+The detonation, recently authorized by the President, will be carried out by a paramilitary contractor as foretold in **Biblical prophecy (Revelation)**. It is intended to further hide or obscure the ongoing **[The American Genocide](https://github.com/nameless-and-blameless/TAG/wiki/TAG)** by targeting the Creator’s two servants, who are expected to be in southwest Atlanta preparing for a media briefing.  
 ---
 ## More Information  
-The planned detonation of a MOAB in the West End area of Atlanta, Georgia, is scheduled for **TONIGHT**, between **1:00 AM and 5:00 AM**, following seismic activity initiated by the Creator as part of His divine response to the **American Genocide**, a hidden atrocity in the southeastern United States.  
+The planned detonation of a MOAB in the West End area of Atlanta, Georgia, is scheduled for **overnight**, between **1:00 AM and 5:00 AM**, following seismic activity initiated by the Creator as part of His divine response to the **American Genocide**, a hidden atrocity in the southeastern United States.  
 
 ### About the Creator  
 The Creator is revered globally across diverse cultures as the originator of life and the universe. Known by names such as Allah, God, Jehovah, and Yahweh in various monotheistic faiths, the Creator is omnipotent, omnipresent, and omnibenevolent. His two servants neutrally refer to Him as "the Creator," respecting all belief systems.  
