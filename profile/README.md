@@ -3,6 +3,9 @@
 
 # SWATS: Earthquake? Evacuate!
 
+> [!TIP]
+> This is issued by the Creator (God) and His two servants (angels), anyone having trouble believing it should say a quick prayer asking for guidance!
+
 ## Who:
 Residents of the following Atlanta neighborhoods:  
 
