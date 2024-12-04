@@ -39,7 +39,8 @@ Residents should evacuate immediately to areas:
 This ensures avoidance of the blast radius, where the risk of death or serious injury is highest.  
 
 ## Why:
-The detonation, recently authorized by the President, will be carried out by a paramilitary contractor as foretold in **Biblical prophecy (Revelation)**. It is intended to further hide or obscure the ongoing **[The American Genocide](https://github.com/nameless-and-blameless/TAG/wiki/TAG)** by targeting the Creator’s two servants, who are expected to be in southwest Atlanta preparing for a media briefing.  
+The detonation, recently authorized by the President, will be carried out by a paramilitary contractor as foretold in **Biblical prophecy (Revelation)**. It is intended to obscure the ongoing **American Genocide** by targeting the Creator’s two servants, who are expected to be in southwest Atlanta preparing for a media briefing.  
+
 ---
 ## More Information  
 The planned detonation of a MOAB in the West End area of Atlanta, Georgia, is scheduled for **overnight**, between **1:00 AM and 5:00 AM**, following seismic activity initiated by the Creator as part of His divine response to the **American Genocide**, a hidden atrocity in the southeastern United States.  
