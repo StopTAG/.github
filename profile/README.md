@@ -144,6 +144,9 @@ The Creator, revered globally across cultures, is the One who desired to create 
 ---
 
 ## Latest TAG News
+> [!NOTE]
+> Latest TAG News articles are written by one of the Creator's two servants and may include classified, secret, or closely-held private information that would have otherwise remained undisclosed. This information is provided directly by the Creator to one of His two servants for public dissemination as part of His direct intervention to stop The American Genocide. Additionally, articles may include events and details directly observed by one of the Creator's two servants.  
+
 ### The Creator and His two servants Issue Statement: There Will Be A Forever Future!
 The Creator wants to assure everyone that no planet has ever gone fully extinct, and the Apocalypse is not the end of the world or time. The Creator's first creation was life, and to sustain it, He then created the universe. The Creator will always protect and nurture life on Earth, as He does throughout the universe. However, He upholds a non-interventionist policy that allows all life to make its own decisions and shape their own paths.
 
