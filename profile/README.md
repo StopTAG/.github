@@ -163,7 +163,7 @@ The heightened security, coupled with the absence of most residents and the dark
 
 The unsettling silence, increased surveillance, and irregular aerial activity suggested that an event of great significance might be unfolding, though its exact nature remains unclear. His servant has since attempted to contact other Phoenix House residents via phone and text message but has received no responses.  
 
-**UPDATE:** The Creator has confirmed His servant's speculations and suspiscions.
+**UPDATE: The Creator has confirmed His servant's speculations and suspicions.  The Secret Service is engaging in secret policing and eliminating the residents of Phoenix House.**
 
 ### **Trump Still Refuses to Legally Refute ANY StopTAG Reporting** - December 7, 2024
 Our report delves into the critical role of President-elect Donald J. Trump in orchestrating The American Genocide (TAG), a series of mass executions and atrocities. Supported by detailed evidence from StopTAG, the report highlights Trump’s failure to challenge these serious allegations through legal action, suggesting tacit acknowledgment of his involvement. Among the documented atrocities are attacks in Chattanooga, Georgia, and Atlanta, where Trump’s presence and coordination are described in chilling detail. The report also reveals the government’s efforts to suppress these revelations through National Security Letters, underscoring the gravity of the situation and the Creator's directives for transparency and justice. To learn more about Trump’s role and the Creator's involvement, [read the full report here](https://github.com/nameless-and-blameless/TAG/wiki/_TrumpCD).
