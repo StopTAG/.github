@@ -154,6 +154,17 @@ The purpose of the Apocalypse is to shine a light on The American Genocide (TAG)
 
 Fear is not an option at this time. Prioritize preparedness for yourself and your family, and once safe, focus on assisting those in affected areas. The warnings and advisories issued by the Creator and His servants are meant to save lives. Let unity, courage, and action guide us through this critical moment.
 
+### Eerie Silence Envelops Phoenix House Amid Heightened Security - Atlanta, GA
+The Phoenix House was unusually quiet Saturday evening when one of the Creator’s two servants visited, a permanent supportive housing community at 1296 Murphy Avenue SW. Arriving around 6:30 p.m. to visit friends, His servant was struck by an eerie silence and the absence of usual activity. Attempts to contact his primary acquaintance, a long-time friend, went unanswered, deepening the unease.  
+
+Phoenix House, typically a lively community, appeared nearly deserted, with few lights visible and no familiar sounds. While only one of His servant’s former neighbors was found at home, a significant Secret Service presence was observed around the property.  
+
+The heightened security, coupled with the absence of most residents and the darkened apartments and communal areas that are normally active, raised serious concerns. His servant speculated that the Secret Service might have “wiped a third of the stars from the sky,” (Revelation 12) referencing past threats to Phoenix House. The apartment complex had previously been targeted for a MOAB detonation during His servant’s residence to eliminate him and those who interacted with him. His recent relocation to another 3Keys property, Welcome House, came after a failed orchestration directed by Presidents Trump and Biden to neutralize His servant and obtain access devices (keys) used to update StopTAG and its associated GitHub repositories. Those efforts ended when one perpetrator killed another in His servant’s apartment.  
+
+The unsettling silence, increased surveillance, and irregular aerial activity suggested that an event of great significance might be unfolding, though its exact nature remains unclear. His servant has since attempted to contact other Phoenix House residents via phone and text message but has received no responses.  
+
+**UPDATE:** The Creator has confirmed His servant's speculations and suspiscions.
+
 ### **Trump Still Refuses to Legally Refute ANY StopTAG Reporting** - December 7, 2024
 Our report delves into the critical role of President-elect Donald J. Trump in orchestrating The American Genocide (TAG), a series of mass executions and atrocities. Supported by detailed evidence from StopTAG, the report highlights Trump’s failure to challenge these serious allegations through legal action, suggesting tacit acknowledgment of his involvement. Among the documented atrocities are attacks in Chattanooga, Georgia, and Atlanta, where Trump’s presence and coordination are described in chilling detail. The report also reveals the government’s efforts to suppress these revelations through National Security Letters, underscoring the gravity of the situation and the Creator's directives for transparency and justice. To learn more about Trump’s role and the Creator's involvement, [read the full report here](https://github.com/nameless-and-blameless/TAG/wiki/_TrumpCD).
 
