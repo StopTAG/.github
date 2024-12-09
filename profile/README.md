@@ -168,6 +168,11 @@ The unsettling silence, increased surveillance, and irregular aerial activity su
 ### **Trump Still Refuses to Legally Refute ANY StopTAG Reporting** - December 7, 2024
 Our report delves into the critical role of President-elect Donald J. Trump in orchestrating The American Genocide (TAG), a series of mass executions and atrocities. Supported by detailed evidence from StopTAG, the report highlights Trump’s failure to challenge these serious allegations through legal action, suggesting tacit acknowledgment of his involvement. Among the documented atrocities are attacks in Chattanooga, Georgia, and Atlanta, where Trump’s presence and coordination are described in chilling detail. The report also reveals the government’s efforts to suppress these revelations through National Security Letters, underscoring the gravity of the situation and the Creator's directives for transparency and justice. To learn more about Trump’s role and the Creator's involvement, [read the full report here](https://github.com/nameless-and-blameless/TAG/wiki/_TrumpCD).
 
+### StopTAG Mirrored on WordPress
+The Creator's two servants are now publishing *StopTAG*—a collection of content, news articles, and stories—on WordPress. You can access this information at [https://StopTAG.wordpress.com](https://StopTAG.wordpress.com). Every piece of content shared on WordPress has been approved by the Creator. Readers are encouraged to pray if they find it difficult to believe anything written.
+
+(They are not happy! --nameless)
+
 ### **Biden Comes to Trump's Aid in Atlanta** - December 7, 2024
 President Biden made a discreet trip to Atlanta on Friday night, December 6, 2024, arriving at the Welcome House permanent supportive housing facility around 11 p.m. at the request of President-Elect Trump. This visit was part of their ongoing attempts to eliminate one of the Creator's two servants. President Biden remains in Atlanta at the time of this writing.  
 
