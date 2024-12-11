@@ -21,7 +21,7 @@ Residents of the following Atlanta neighborhoods:
 ## What:
 An imminent risk of death or life-threatening injury exists due to the planned detonation of a **MOAB (Massive Ordnance Air Blast/"Mother of All Bombs")** in southwest Atlanta (Oakland City/West End).  
 
-The detonation is planned to immediat3ly follow the Creator's seismic interventiom (eartgquakes) which are intended to shine a light on the hidden genocide. The earthquakes will not cause harm to life or property.
+The detonation is planned to immediately follow the Creator's seismic interventiom (eartgquakes) which are intended to shine a light on the hidden genocide. The earthquakes will not cause harm to life or property.
 
 - **For those who MUST evacuate:**  
   RISK OF DEATH. Blast waves will cause severe damage, breaking windows, collapsing weaker structures, and injuring individuals with flying debris.  
