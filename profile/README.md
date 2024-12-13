@@ -1,3 +1,6 @@
+> [!WARNING]
+> A warning has been issued for Central Kentucky and the Tennessee Valley areas regarding an increase in food pantry operations, likely to occur on December 13, 2024. Ees [full warning](https://gist.github.com/garagerebel/597809a7bc5c1941838f95bdd0717394)
+
 > [!NOTE]
 > **Please note that the content you are about to view is part of an urgent advisory and should be given your immediate attention.** Normal StopTAG content begins below this advisory.
 
