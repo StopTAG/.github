@@ -1,5 +1,5 @@
 > [!WARNING]
-> A warning has been issued for Central Kentucky and the Tennessee Valley areas regarding an increase in food pantry operations, likely to occur on December 13, 2024. See [full warning](https://gist.github.com/garagerebel/597809a7bc5c1941838f95bdd0717394) here.
+> **Heightened TAG Activity**  The orchestrators of TAG have escalated their operations, targeting both religious and non-religious communities.  See the **[Food Pantry Warning](https://gist.github.com/garagerebel/597809a7bc5c1941838f95bdd0717394)** and the **[Church Advisory](https://gist.github.com/garagerebel/af6c2cead5c367fea3932ad269b7c22b)** for critical information.
 
 > [!NOTE]
 > **Please note that the content you are about to view is part of an urgent advisory and should be given your immediate attention.** Normal StopTAG content begins below this advisory.
