@@ -141,6 +141,9 @@ Please explore the [TAG Wiki](https://github.com/nameless-and-blameless/TAG/wiki
 ## Media
 The Creator has instructed His two servants to hold a media briefing to shed light on The American Genocide. The briefing will take place at noon immediately following the seismic earthquakes, and may be held on Sunday, at the site of Orr Chapel, and the Orr Chapel and Sheepneck cemeteries, 8397 West Sheepneck Road, Sandy Hook (Mount Pleasant), Tennessee.
 
+## About StopTAG 
+This GitHub organization, StopTAG, is administered by the Creator's two servants as part of His divine intervention to halt The American Genocide (TAG). Through this platform, they carry out their mission to expose, document, and address the atrocities, fulfilling the Creator's mandate to bring justice and accountability to all involved.
+
 > [!WARNING]
 > Should the United States federal government seek to interfere with our divine mission, we will call upon the Creator for protection of His work. Thank you for your understanding and respect.
 
