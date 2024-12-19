@@ -1,10 +1,3 @@
-> [!WARNING]
-> [Phantom 
-> Pantries](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Pantry) are covert mass executions masquerading as food pantry or food assistance programs, hosted by "masquerade churches" established by the CIA in the aftermath of [Sanctuary Massacres](https://github.com/nameless-and-blameless/TAG/wiki/Sanctuary-Massacre). These sinister operations, which exploit the desperation of vulnerable populations seeking aid, are part of The American Genocide. The Creator’s two servants have issued an urgent public warning, based on numerous factors, of an imminent increase in Phantom Pantry activities. It is certain that such operations will resume the week of Monday, December 16, 2024, at Hickory Valley Christian Church in Chattanooga, TN, and Mount Zion Baptist Church in Georgetown, KY.  See the **[Food Pantry Warning](https://gist.github.com/garagerebel/597809a7bc5c1941838f95bdd0717394)** and the **[Church Advisory](https://gist.github.com/garagerebel/af6c2cead5c367fea3932ad269b7c22b)** for critical information.
-
-> [!WARNING]
-> Residents and visitors of metro Atlanta there is an imminent risk of death after the major earthquakes. See [Warning](https://gist.github.com/garagerebel/850e61514f1821497eba0a690a9e29d8).
-
 # The American Genocide (TAG): The Revelation from the Creator's Special Mission
 ## About The American Genocide 
 The American Genocide is a covert and devastating campaign initiated in response to [Spark](https://github.com/nameless-and-blameless/TAG/wiki/Spark)—a gift from the Creator  that restores the human immune system to His designed function, allowing it to eliminate any disease not caused by organ failure or dysfunction. Spark's emergence threatened pharmaceutical companies' profits, leading Gilead Sciences and the CIA to launch a brutal campaign against those associated with Spark.
