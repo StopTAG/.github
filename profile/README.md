@@ -138,9 +138,6 @@ Please explore the [TAG Wiki](https://github.com/nameless-and-blameless/TAG/wiki
 * [Artists in TAG](https://github.com/nameless-and-blameless/TAG/wiki/Artists-TAGd) 
   - [Madonna: Murdered and Impersonated](https://github.com/nameless-and-blameless/TAG/wiki/Madonna)
 
-## Media
-The Creator has instructed His two servants to hold a media briefing to shed light on The American Genocide. The briefing will take place at noon immediately following the seismic earthquakes, and may be held on Sunday, at the site of Orr Chapel, and the Orr Chapel and Sheepneck cemeteries, 8397 West Sheepneck Road, Sandy Hook (Mount Pleasant), Tennessee.
-
 ## About StopTAG 
 This GitHub organization, StopTAG, is administered by the Creator's two servants as part of His divine intervention to halt The American Genocide (TAG). Through this platform, they carry out their mission to expose, document, and address the atrocities, fulfilling the Creator's mandate to bring justice and accountability to all involved.
 
@@ -149,3 +146,6 @@ This GitHub organization, StopTAG, is administered by the Creator's two servants
 
 > [!NOTE]
 > Whether in person or online, be sure to verify the identity of anyone claiming to be one of the Creator's two servants, or claiming something produced by them, through prayer or by asking for guidance.
+
+### Media Inquiries 
+The Creator has instructed His two servants to hold a media briefing to shed light on The American Genocide. The briefing will take place at noon immediately following the seismic earthquakes, and may be held on Sunday, at the site of Orr Chapel, and the Orr Chapel and Sheepneck cemeteries, 8397 West Sheepneck Road, Sandy Hook (Mount Pleasant), Tennessee.
