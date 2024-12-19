@@ -32,6 +32,11 @@ The Creator, revered globally across cultures, is the One who desired to create 
 > [!NOTE]
 > Latest TAG News articles are written by one of the Creator's two servants and may include classified, secret, or closely-held private information that would have otherwise remained undisclosed. This information is provided directly by the Creator to one of His two servants for public dissemination as part of His direct intervention to stop The American Genocide. Additionally, articles may include events and details directly observed by one of the Creator's two servants.  
 
+### TAG's Orchestrators Plan Devastating Escalation: The Mother Of All Bombs Over Southwest Atlanta
+After realizing that their objectives were failing due to the Creator's protection of His servant and the work being performed, the delegation held a series of meetings. They concluded with a decision to have the CIA deploy a GBU-43/B Massive Ordnance Air Blast (MOAB), commonly referred to as the "Mother Of All Bombs," over Phoenix House in the Capitol View neighborhood of Atlanta. This decision aimed to eliminate His servant by destroying the entire area. Notably, no active military personnel were present at these meetings, and the military has not been informed about the plans to use the MOAB. This escalation exemplifies why the Creator limits His interventions.
+
+For more on the potential lives lost due to the planned detonation, see the report on the [MOAB](https://github.com/nameless-and-blameless/TAG/wiki/MOAB).
+
 ### The Creator and His two servants Issue Statement: There Will Be A Forever Future!
 The Creator wants to assure everyone that no planet has ever gone fully extinct, and the Apocalypse is not the end of the world or time. The Creator's first creation was life, and to sustain it, He then created the universe. The Creator will always protect and nurture life on Earth, as He does throughout the universe. However, He upholds a non-interventionist policy that allows all life to make its own decisions and shape their own paths.
 
