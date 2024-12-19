@@ -24,6 +24,17 @@ The Creator, revered globally across cultures, is the One who desired to create 
 
 ---
 
+## Current Warnings and Advisories 
+
+| State | Warning/Advisory Subject | Link |
+|---------|--------------------------------------|-------|
+| GA | For Metro-Atlanta Residents | [Warning](https://gist.github.com/garagerebel/850e61514f1821497eba0a690a9e29d8) |
+| KY & TN | Food Pantries| [Warning](https://gist.github.com/garagerebel/597809a7bc5c1941838f95bdd0717394) |
+| KY & TN | Missing Persons Reports | [Warning](https://github.com/nameless-and-blameless/TAG/wiki/MPFAP-20241113) |
+| USA | Domestic Surveillance - Popular Apps | [Advisory](https://github.com/nameless-and-blameless/TAG/wiki/Domestic-Surveillance) |
+
+---
+
 ## Latest TAG News
 > [!NOTE]
 > Latest TAG News articles are written by one of the Creator's two servants and may include classified, secret, or closely-held private information that would have otherwise remained undisclosed. This information is provided directly by the Creator to one of His two servants for public dissemination as part of His direct intervention to stop The American Genocide. Additionally, articles may include events and details directly observed by one of the Creator's two servants.  
@@ -78,36 +89,6 @@ Related: [Trump Still Refuses to Legally Refute StopTAG Reporting](https://githu
 In a shocking turn of events, several members of Trump's transition team, who had stayed behind in Atlanta to facilitate the theft of a mobile device crucial to updating StopTAG, became eyewitnesses to a murder. During an operation aimed at seizing the device and eliminating the Creator's servant, a violent argument broke out between the perpetrators, resulting in one person fatally stabbing another. The perpetrators had been sent to target the Creator's servant and acquire the device.
 
 Despite being invisible to the naked eye due to their use of microwave cloaking technology, the witnesses remained in the apartment as the crime scene was investigated. They did not come forward to the authorities. The Atlanta Police Department has arrested the individual responsible for the murder and charged him with the crime. The Creator's servant, who was unharmed, has fully cooperated with law enforcement. He continues to hold possession of the access device and other critical evidence. For his safety, the Creator's servant has been relocated to a new facility, Welcome House, where he remains under 24/7 surveillance.
-
----
-
-## Warnings & Advisories 
-# Urgent Warnings & Advisories
-
-## **Beware of Phantom Pantries: A Deadly Trap**
-
-Phantom Pantries are sinister operations masquerading as food assistance programs. Hosted by orchestrators of TAG, these sites target vulnerable individuals seeking help. They are set up in churches that have previously suffered violent assaults, leaving all members dead. Tragically, anyone who seeks aid at these locations is at grave risk of being killed.  
-
-It’s crucial to stay informed and vigilant. Reports indicate that these deadly traps are active in Kentucky and Tennessee.  
-
-**Learn more**: Access the full list of affected locations and guidance on how to avoid them [here](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Pantry).
-
-## Missing Persons Report – Kentucky/Tennessee
-
-**Urgent alert:** Individuals in Kentucky or Tennessee should NOT file a missing persons report with law enforcement if someone in their community has gone missing after attending any event at one of the churches listed below.  
-These reports are used to identify and eliminate those who may discuss victim disappearances or strange occurrences related to the churches.  
-
-The names of the churches listed below are the true and correct names. Please note that the masqueraded churches may have slight deviations in their names.
-
-See detailed warning: [Missing Persons Report - Kentucky/Tennessee](https://github.com/nameless-and-blameless/TAG/wiki/MPFAP-20241113)
-
-## Domestic Surveillance – Popular Apps Monitoring  
-The Creator and His servants have issued a warning regarding the widespread use of apps for domestic surveillance. Speaking out on certain platforms has led to numerous disappearances. Be cautious of your online communications.  
-Full advisory: [Domestic Surveillance Risks](https://github.com/nameless-and-blameless/TAG/wiki/Domestic-Surveillance)
-
-### Additional Recommendations:
-- **Stay Informed:** Please regularly check **StopTAG** for updates on each situation.
-- **Take Precautions:** Ensure safety measures are in place in affected areas, including shelter-in-place when necessary.
 
 ---
 
