@@ -39,7 +39,6 @@ The purpose of the Apocalypse is to shine a light on The American Genocide (TAG)
 
 Fear is not an option at this time. Prioritize preparedness for yourself and your family, and once safe, focus on assisting those in affected areas. The warnings and advisories issued by the Creator and His servants are meant to save lives. Let unity, courage, and action guide us through this critical moment.
 
-
 ### **Trump Still Refuses to Legally Refute ANY StopTAG Reporting** - December 7, 2024
 Our report delves into the critical role of President-elect Donald J. Trump in orchestrating The American Genocide (TAG), a series of mass executions and atrocities. Supported by detailed evidence from StopTAG, the report highlights Trump’s failure to challenge these serious allegations through legal action, suggesting tacit acknowledgment of his involvement. Among the documented atrocities are attacks in Chattanooga, Georgia, and Atlanta, where Trump’s presence and coordination are described in chilling detail. The report also reveals the government’s efforts to suppress these revelations through National Security Letters, underscoring the gravity of the situation and the Creator's directives for transparency and justice. To learn more about Trump’s role and the Creator's involvement, [read the full report here](https://github.com/nameless-and-blameless/TAG/wiki/_TrumpCD).
 
@@ -74,7 +73,9 @@ Despite being invisible to the naked eye due to their use of microwave cloaking 
 Please explore the [TAG Wiki](https://github.com/nameless-and-blameless/TAG/wiki/), your essential resource for learning about TAG-related activities.
 
 ### TAG's Targeted Groups
-#### Christians (Church Massacres)
+#### Christians 
+* [Sanctuary Massacres](https://github.com/nameless-and-blameless/TAG/wiki/Sanctuary-Massacre):
+
 | **Congregation (Location)** | **Demographics** | **Casualties** |
 |------------------------------|------------------|----------------|
 | [Mount Calvary Baptist Church (4742 Todds Road, Lexington, KY)](https://github.com/nameless-and-blameless/TAG/wiki/Mount-Calvary-Baptist-Church) | Predominantly African American | 127 |
@@ -110,15 +111,15 @@ Please explore the [TAG Wiki](https://github.com/nameless-and-blameless/TAG/wiki
 ### TAG Orchestrators 
 * [The Creator's Statement on Crimes](https://github.com/nameless-and-blameless/TAG/wiki/Statement-on-Crimes)
   - [TOP-SECRET Presidential Mission](https://github.com/nameless-and-blameless/TAG/wiki/Presidential-Mission)
-* [President Donald J. Trump](https://github.com/nameless-and-blameless/TAG/wiki/Donald-J.-Trump)
-  - [The Judgment of Satan](https://github.com/nameless-and-blameless/TAG/wiki/The-Judgment-of-Satan)
+  - [President-elect Donald J. Trump](https://github.com/nameless-and-blameless/TAG/wiki/Donald-J.-Trump)
 
 ### TAG Orchestrations 
+* [Sanctuary Massacres](https://github.com/nameless-and-blameless/TAG/wiki/Sanctuary-Massacre)
 * [Phantom Funerals](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Funeral)
   - [Rev. Duke Stone](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Funeral-of-Rev.-Duke-Stone)
   - [Zachary Stone](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Funeral-of-Zachary-Stone)
   - [Senator Marsha Blackburn](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Funeral-of-Senator-Marsha-Blackburn)
-* [Phantom Pantry](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Pantry)
+* [Phantom Pantries](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Pantry)
 
 ### The Creator and His servants
 * [The Creator](https://github.com/nameless-and-blameless/TAG/wiki/The-Creator)
