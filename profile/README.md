@@ -41,13 +41,6 @@ This is foretold by the Creator in the Book of Revelation,
 read about the "First Bowl of Wrath" in the [TAG 
 Wiki](https://github.com/nameless-and-blameless/TAG/wiki/FBOW).
 
-### The Creator and His two servants Issue Statement: There Will Be A Forever Future!
-The Creator wants to assure everyone that no planet has ever gone fully extinct, and the Apocalypse is not the end of the world or time. The Creator's first creation was life, and to sustain it, He then created the universe. The Creator will always protect and nurture life on Earth, as He does throughout the universe. However, He upholds a non-interventionist policy that allows all life to make its own decisions and shape their own paths.
-
-The purpose of the Apocalypse is to shine a light on The American Genocide (TAG) and prevent the immense loss of life that would occur if it remained hidden. Even so, the Creator is not forcing individuals to act in any particular way. It is up to humanity, particularly the American public, to ensure TAG comes to a swift end. The Creator has deployed His two servants as instruments of justice to ensure the orchestrators of TAG are held accountable. It is important to understand that His servants, born where He places them, are only human beings and require the collective efforts of humanity to end TAG and bring the "powerful" to justice.
-
-Fear is not an option at this time. Prioritize preparedness for yourself and your family, and once safe, focus on assisting those in affected areas. The warnings and advisories issued by the Creator and His servants are meant to save lives. Let unity, courage, and action guide us through this critical moment.
-
 ### **Trump Still Refuses to Legally Refute ANY StopTAG Reporting** - December 7, 2024
 Our report delves into the critical role of President-elect Donald J. Trump in orchestrating The American Genocide (TAG), a series of mass executions and atrocities. Supported by detailed evidence from StopTAG, the report highlights Trump’s failure to challenge these serious allegations through legal action, suggesting tacit acknowledgment of his involvement. Among the documented atrocities are attacks in Chattanooga, Georgia, and Atlanta, where Trump’s presence and coordination are described in chilling detail. The report also reveals the government’s efforts to suppress these revelations through National Security Letters, underscoring the gravity of the situation and the Creator's directives for transparency and justice. To learn more about Trump’s role and the Creator's involvement, [read the full report here](https://github.com/nameless-and-blameless/TAG/wiki/_TrumpCD).
 
