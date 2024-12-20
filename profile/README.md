@@ -21,7 +21,7 @@ The Creator, revered globally across cultures, is the One who desired to create 
 
 | State | Warning/Advisory Subject | Link |
 |---------|--------------------------------------|-------|
-| GA | For Metro-Atlanta Residents | [Warning](https://gist.github.com/garagerebel/850e61514f1821497eba0a690a9e29d8) |
+| GA | MOAB / SW Atlanta Residents | [Warning](https://gist.github.com/garagerebel/850e61514f1821497eba0a690a9e29d8) |
 | KY & TN | Food Pantries| [Warning](https://gist.github.com/garagerebel/597809a7bc5c1941838f95bdd0717394) |
 | KY & TN | Missing Persons Reports | [Warning](https://github.com/nameless-and-blameless/TAG/wiki/MPFAP-20241113) |
 | USA | Domestic Surveillance - Popular Apps | [Advisory](https://github.com/nameless-and-blameless/TAG/wiki/Domestic-Surveillance) |
@@ -36,6 +36,10 @@ The Creator, revered globally across cultures, is the One who desired to create 
 After realizing that their objectives were failing due to the Creator's protection of His servant and the work being performed, the delegation held a series of meetings. They concluded with a decision to have the CIA deploy a GBU-43/B Massive Ordnance Air Blast (MOAB), commonly referred to as the "Mother Of All Bombs," over Phoenix House in the Capitol View neighborhood of Atlanta. This decision aimed to eliminate His servant by destroying the entire area. Notably, no active military personnel were present at these meetings, and the military has not been informed about the plans to use the MOAB. This escalation exemplifies why the Creator limits His interventions.
 
 For more on the potential lives lost due to the planned detonation, see the report on the [MOAB](https://github.com/nameless-and-blameless/TAG/wiki/MOAB).
+
+This is foretold by the Creator in the Book of Revelation, 
+read about the "First Bowl of Wrath" in the [TAG 
+Wiki](https://github.com/nameless-and-blameless/TAG/wiki/FBOW).
 
 ### The Creator and His two servants Issue Statement: There Will Be A Forever Future!
 The Creator wants to assure everyone that no planet has ever gone fully extinct, and the Apocalypse is not the end of the world or time. The Creator's first creation was life, and to sustain it, He then created the universe. The Creator will always protect and nurture life on Earth, as He does throughout the universe. However, He upholds a non-interventionist policy that allows all life to make its own decisions and shape their own paths.
