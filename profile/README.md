@@ -32,6 +32,12 @@ The Creator, revered globally across cultures, is the One who desired to create 
 > [!NOTE]
 > Latest TAG News articles are written by one of the Creator's two servants and may include classified, secret, or closely-held private information that would have otherwise remained undisclosed. This information is provided directly by the Creator to one of His two servants for public dissemination as part of His direct intervention to stop The American Genocide. Additionally, articles may include events and details directly observed by one of the Creator's two servants.  
 
+### Biden and Trump Oversee Covert Operation in Atlanta
+
+The Creator says both President Joe Biden and President-elect Donald J. Trump are at the Welcome House, 234 Memorial Drive SW, Atlanta, Georgia, overseeing renewed attempts to kill one of the Creator’s two servants residing there. The operation is cloaked in secrecy, with Biden, Trump, and their Secret Service teams utilizing advanced microwave cloaking technology to remain nearly undetectable to the naked eye.
+
+Earlier on Saturday morning, between 2 a.m. and 7 a.m., Trump reportedly spent several hours at the Red Roof Inn on North Druid Hills Road, where multiple attempts to kill His servant were made. His servant had been lured to the hotel under the guise of socializing with a new acquaintance and their "friends," later identified by the Creator as Secret Service agents. Despite the efforts, the Creator’s servant remains unharmed and unconcerned, though admittedly annoyed. Both leaders continue to collaborate in this escalating situation.
+
 ### TAG's Orchestrators Plan Devastating Escalation: The Mother Of All Bombs Over Southwest Atlanta
 After realizing that their objectives were failing due to the Creator's protection of His servant and the work being performed, the delegation held a series of meetings. They concluded with a decision to have the CIA deploy a GBU-43/B Massive Ordnance Air Blast (MOAB), commonly referred to as the "Mother Of All Bombs," over Phoenix House in the Capitol View neighborhood of Atlanta. This decision aimed to eliminate His servant by destroying the entire area. Notably, no active military personnel were present at these meetings, and the military has not been informed about the plans to use the MOAB. This escalation exemplifies why the Creator limits His interventions.
 
