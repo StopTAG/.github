@@ -34,7 +34,7 @@ The Creator, revered globally across cultures, is the One who desired to create 
 
 ### Trump Spends Christmas Day in Atlanta 
 
-December 25, 2024 - President-elect Donald Trump is spending Christmas Day in Atlanta at the Phoenix House and Welcome House. Trump joined members of his transition team already in Atlanta to oversee another round of attempts on one of the Creator's servants lives.  
+December 25, 2024 - President-elect Donald Trump is spending Christmas Day in Atlanta at the Phoenix House and Welcome House. Trump joined members of his transition team already in Atlanta to oversee another round of attempts on one of the Creator's two servants life. 
 
 ### Trump's Transition Team in Atlanta on Christmas Eve
 
