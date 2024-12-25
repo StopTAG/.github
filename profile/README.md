@@ -32,6 +32,10 @@ The Creator, revered globally across cultures, is the One who desired to create 
 > [!NOTE]
 > Latest TAG News articles are written by one of the Creator's two servants and may include classified, secret, or closely-held private information that would have otherwise remained undisclosed. This information is provided directly by the Creator to one of His two servants for public dissemination as part of His direct intervention to stop The American Genocide. Additionally, articles may include events and details directly observed by one of the Creator's two servants.  
 
+### Trump Spends Christmas Day in Atlanta 
+
+December 25, 2024 - President-elect Donald Trump is spending Christmas Day in Atlanta at the Phoenix House and Welcome House. Trump joined members of his transition team already in Atlanta to oversee another round of attempts on one of the Creator's servants lives.  
+
 ### Trump's Transition Team in Atlanta on Christmas Eve
 
 December 24, 2024 - Key members of Trump's transition team are in Atlanta on Christmas Eve overseeing renewed efforts to eliminate one of the Creator's two servants and obtain the access devices that hold the credentials for StopTAG and it's associated repositories on GitHub.
