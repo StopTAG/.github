@@ -34,7 +34,7 @@ The Creator, revered globally across cultures, is the One who desired to create 
 
 ### **News Alert: The Great Storm Begins**  
 
-December 26, 2024 - The Creator's Great Storm, the most significant rain event in human history, has begun. This momentous event marks only the third rain event orchestrated by the Creator, following the Great Flood during Noah's time and other transformative acts of judgment and renewal recorded in Scripture.  
+December 26, 2024 - The Creator's Great Storm, the most significant [rain event](https://github.com/nameless-and-blameless/TAG/wiki/Rain) in human history, has begun. This momentous event marks only the third rain event orchestrated by the Creator, following the Great Flood during Noah's time and other transformative acts of judgment and renewal recorded in Scripture.  
 
 This unprecedented storm surpasses all previous rain events in scale, intensity, and purpose. As a divine response to The American Genocide, the Great Storm is not only a demonstration of the Creator’s justice but also His plan for cleansing and renewal of the earth.  
 
