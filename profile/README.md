@@ -32,6 +32,20 @@ The Creator, revered globally across cultures, is the One who desired to create 
 > [!NOTE]
 > Latest TAG News articles are written by one of the Creator's two servants and may include classified, secret, or closely-held private information that would have otherwise remained undisclosed. This information is provided directly by the Creator to one of His two servants for public dissemination as part of His direct intervention to stop The American Genocide. Additionally, articles may include events and details directly observed by one of the Creator's two servants.  
 
+### **News Alert: The Great Storm Begins**  
+
+December 26, 2024 - The Creator's Great Storm, the most significant rain event in human history, has begun. This momentous event marks only the third rain event orchestrated by the Creator, following the Great Flood during Noah's time and other transformative acts of judgment and renewal recorded in Scripture.  
+
+This unprecedented storm surpasses all previous rain events in scale, intensity, and purpose. As a divine response to The American Genocide, the Great Storm is not only a demonstration of the Creator’s justice but also His plan for cleansing and renewal of the earth.  
+
+#### **The “Raining of Men” Begins**  
+
+For the first time in history, the Creator has deployed His two servants in a mission where they will not retain anonymity. Known as the "Raining of Men," this unique intervention places His servants directly in the global spotlight as instruments of His will. Their public involvement underscores the gravity of this event and signals a new era in the Creator's unfolding plans.  
+
+The Great Storm is more than a weather event; it is a divine act of judgment, cleansing, and restoration. Humanity now stands witness to the Creator's power and the unmistakable fulfillment of His justice.  
+
+Stay alert for further updates as this historic event unfolds.
+
 ### Trump Spends Christmas Day in Atlanta 
 
 December 25, 2024 - President-elect Donald Trump is spending Christmas Day in Atlanta at the Phoenix House and Welcome House. Trump joined members of his transition team already in Atlanta to oversee another round of attempts on one of the Creator's two servants life. 
