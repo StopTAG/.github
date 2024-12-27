@@ -32,6 +32,15 @@ The Creator, revered globally across cultures, is the One who desired to create 
 > [!NOTE]
 > Latest TAG News articles are written by one of the Creator's two servants and may include classified, secret, or closely-held private information that would have otherwise remained undisclosed. This information is provided directly by the Creator to one of His two servants for public dissemination as part of His direct intervention to stop The American Genocide. Additionally, articles may include events and details directly observed by one of the Creator's two servants.  
 
+### **Trump Quickly Flees Atlanta**
+
+December 26, 2024 4:04PM Atlanta - After learning of the Trump and Jacobsen article Trump made plans for an immediate departure from Atlanta and left. Trump's transition team members which have been in Atlanta left as well.
+
+### **Trump and Jacobsen: The Unholy Alliance**
+
+The Creator reveals a cocaine-fueled affair between President-elect Trump and CIA operative Jacobsen, the top orchestrators of The American Genocide (TAG). Their depravity, including mass execution attendance and Jacobsen’s pregnancy, highlights the moral corruption driving TAG. [Read more](https://stoptag.wordpress.com/2024/12/27/the-unholy-alliance-how-an-affair-fuels-the-american-genocide/).
+
+
 ### **News Alert: The Great Storm Begins**  
 
 December 26, 2024 - The Creator's Great Storm, the most significant [rain event](https://github.com/nameless-and-blameless/TAG/wiki/Rain) in human history, has begun. This momentous event marks only the third rain event orchestrated by the Creator, following the Great Flood during Noah's time and other transformative acts of judgment and renewal recorded in Scripture.  
