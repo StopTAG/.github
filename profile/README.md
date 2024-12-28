@@ -71,7 +71,8 @@ Please explore the [TAG Wiki](https://github.com/nameless-and-blameless/TAG/wiki
 ### TAG's Targeted Groups
 #### Christians 
 
-* [Sanctuary Massacres](https://github.com/nameless-and-blameless/TAG/wiki/Sanctuary-Massacre):
+* [Congregation Massacres](https://github.com/nameless-and-blameless/TAG/wiki/Congregation-Massacre)
+* [Phantom Funerals](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Funeral)
 
 | **Congregation (Location)** | **Demographics** | **Casualties** |
 |------------------------------|------------------|----------------|
@@ -111,7 +112,8 @@ Please explore the [TAG Wiki](https://github.com/nameless-and-blameless/TAG/wiki
   - [President-elect Donald J. Trump](https://github.com/nameless-and-blameless/TAG/wiki/Donald-J.-Trump)
 
 ### TAG Orchestrations 
-* [Sanctuary Massacres](https://github.com/nameless-and-blameless/TAG/wiki/Sanctuary-Massacre)
+
+* [Congregation Massacres](https://github.com/nameless-and-blameless/TAG/wiki/Congregation-Massacre)
 * [Phantom Funerals](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Funeral)
   - [Rev. Duke Stone](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Funeral-of-Rev.-Duke-Stone)
   - [Zachary Stone](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Funeral-of-Zachary-Stone)
