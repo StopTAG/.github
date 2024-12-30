@@ -31,6 +31,9 @@ The Creator, revered globally across cultures, is the One who desired to create 
 | KY & TN | Missing Persons Reports | [Warning](https://github.com/nameless-and-blameless/TAG/wiki/MPFAP-20241113) |
 | USA | Domestic Surveillance - Popular Apps | [Advisory](https://github.com/nameless-and-blameless/TAG/wiki/Domestic-Surveillance) |
 
+> [!TIP]
+> You can help save lives by sharing these warnings and advisories with your community and the local law enforcement.
+
 ---
 
 ## Latest TAG News
@@ -150,3 +153,20 @@ This GitHub organization, StopTAG, is administered by the Creator's two servants
 
 ### Media Inquiries 
 The Creator has instructed His two servants to hold a media briefing to shed light on The American Genocide. The briefing will take place at noon immediately following the seismic earthquakes, and may be held on Sunday, at the site of Orr Chapel, and the Orr Chapel and Sheepneck cemeteries, 8397 West Sheepneck Road, Sandy Hook (Mount Pleasant), Tennessee.
+
+### Help  Us Stop TAG
+If you would like to help Us Stop The American Genocide, contact StopTAG you may do so on [Wire](https://wire.com).
+1. Setup an anonymous account on [Wire](https://wire.com).
+2. Send a message to @stoptag
+3. Never disclose your name, location or other identifying information.
+
+#### Top Ways You Can Help
+* Contacting local authorities 
+* Contacting the media
+* Sharing StopTAG content with others
+
+#### Nameless' Wish List
+I'm currently living with Donald Trump's golden rope around my neck (complete income blockade) and around the clock in-person surveillance which prevents me from meeting non-CIA and federal government agents and employees. So any assistance the general public would like to help me with has to be done very carefully, please contact me on Wire (above) first.
+* Unlocked iPhone >=11
+* Food
+* WiFi or Mobile Service 
