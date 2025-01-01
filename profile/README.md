@@ -154,19 +154,16 @@ This GitHub organization, StopTAG, is administered by the Creator's two servants
 ### Media Inquiries 
 The Creator has instructed His two servants to hold a media briefing to shed light on The American Genocide. The briefing will take place at noon immediately following the seismic earthquakes, and may be held on Sunday, at the site of Orr Chapel, and the Orr Chapel and Sheepneck cemeteries, 8397 West Sheepneck Road, Sandy Hook (Mount Pleasant), Tennessee.
 
-### Help  Us Stop TAG
-If you would like to help Us Stop The American Genocide, contact StopTAG you may do so on [Wire](https://wire.com).
-1. Setup an anonymous account on [Wire](https://wire.com).
-2. Send a message to @stoptag
-3. Never disclose your name, location or other identifying information.
+### Help Us Stop TAG  
 
-#### Top Ways You Can Help
-* Contacting local authorities 
-* Contacting the media
-* Sharing StopTAG content with others
+If you want to help us stop The American Genocide (TAG), you can contact StopTAG securely through [Wire](https://wire.com).  
 
-#### Nameless' Wish List
-I'm currently living with Donald Trump's golden rope around my neck (complete income blockade) and around the clock in-person surveillance which prevents me from meeting non-CIA and federal government agents and employees. So any assistance the general public would like to help me with has to be done very carefully, please contact me on Wire (above) first.
-* Unlocked iPhone >=11
-* Food
-* WiFi or Mobile Service 
+#### How to Get Started  
+1. Set up an anonymous account on [Wire](https://wire.com).  
+2. Send a message to **@stoptag**.  
+3. Never disclose your name, location, or any other identifying information.  
+
+#### Top Ways You Can Help  
+- Contact local authorities.  
+- Reach out to the media.  
+- Share StopTAG content with others.  
