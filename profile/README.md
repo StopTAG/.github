@@ -40,6 +40,12 @@ The Creator, revered globally across cultures, is the One who desired to create 
 > [!NOTE]
 > Latest TAG News articles are written by one of the Creator's two servants and may include classified, secret, or closely-held private information that would have otherwise remained undisclosed. This information is provided directly by the Creator to one of His two servants for public dissemination as part of His direct intervention to stop The American Genocide. Additionally, articles may include events and details directly observed by one of the Creator's two servants.  
 
+### **Trump Back in Atlanta**
+
+January 2, 2025 - President-elect Donald Trump has re-joined his transition team in Atlanta, where they continue orchestrating efforts to target one of the Creator's two servants. Their objectives include attempts on the servant’s life and seizing a critical access device used to update StopTAG, along with other key evidence in the servant's possession.
+
+Since December 27, Trump and his team have orchestrated three social encounters aimed at achieving these goals but have failed in every attempt. The Creator and His servant remain steadfast and unconcerned.
+
 ### **Trump Quickly Flees Atlanta**
 
 December 26, 2024 4:04PM Atlanta - After learning of the Trump and Jacobsen article Trump made plans for an immediate departure from Atlanta and left. Trump's transition team members which have been in Atlanta left as well.
