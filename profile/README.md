@@ -25,7 +25,7 @@ The Creator, revered globally across cultures, is the One who desired to create 
 
 | State | Warning/Advisory Subject | Link |
 |---------|--------------------------------------|-------|
-| TN |Warning for Chattanooga area Churches |  [Warning](https://github.com/StopTAG/.github/blob/main/warnings/CHATTCM-20250108.md) |
+| KY & TN |Warning for Central KY & Chattanooga area Churches |  [Warning](https://github.com/StopTAG/.github/blob/main/warnings/CM-20250108.md) |
 | TN | Phantom Funerals in Chattanooga | [Warning](https://gist.github.com/garagerebel/eace4b90b63a34d982c50128f9906c31) |
 | GA | MOAB / SW Atlanta Residents | [Warning](https://gist.github.com/garagerebel/850e61514f1821497eba0a690a9e29d8) |
 | KY & TN | Food Pantries| [Warning](https://gist.github.com/garagerebel/597809a7bc5c1941838f95bdd0717394) |
