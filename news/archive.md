@@ -1,6 +1,39 @@
 # StopTAG News Archive 
 [Return to StopTAG](https://GitHub.com/StopTAG)
 
+## Latest TAG News
+> [!NOTE]
+> Latest TAG News articles are written by one of the Creator's two servants and may include classified, secret, or closely-held private information that would have otherwise remained undisclosed. This information is provided directly by the Creator to one of His two servants for public dissemination as part of His direct intervention to stop The American Genocide. Additionally, articles may include events and details directly observed by one of the Creator's two servants.  
+
+### **Trump Back in Atlanta**
+
+January 2, 2025 - President-elect Donald Trump has re-joined his transition team in Atlanta, where they continue orchestrating efforts to target one of the Creator's two servants. Their objectives include attempts on His servant’s life and seizing a critical access device used to update StopTAG, along with other key evidence in His servant's possession.
+
+Since December 27, Trump and his team have orchestrated three social encounters aimed at achieving these goals but have failed in every attempt. The Creator and His servant remain steadfast and unconcerned.
+
+### **Trump Quickly Flees Atlanta**
+
+December 26, 2024 4:04PM Atlanta - After learning of the Trump and Jacobsen article Trump made plans for an immediate departure from Atlanta and left. Trump's transition team members which have been in Atlanta left as well.
+
+### **Trump and Jacobsen: The Unholy Alliance**
+
+The Creator reveals a cocaine-fueled affair between President-elect Trump and CIA operative Jacobsen, the top orchestrators of The American Genocide (TAG). Their depravity, including mass execution attendance and Jacobsen’s pregnancy, highlights the moral corruption driving TAG. [Read more](https://stoptag.wordpress.com/2024/12/27/the-unholy-alliance-how-an-affair-fuels-the-american-genocide/).
+
+
+### **News Alert: The Great Storm Begins**  
+
+December 26, 2024 - The Creator's Great Storm, the most significant [rain event](https://github.com/nameless-and-blameless/TAG/wiki/Rain) in human history, has begun. This momentous event marks only the third rain event orchestrated by the Creator, following the Great Flood during Noah's time and other transformative acts of judgment and renewal recorded in Scripture.  
+
+This unprecedented storm surpasses all previous rain events in scale, intensity, and purpose. As a divine response to The American Genocide, the Great Storm is not only a demonstration of the Creator’s justice but also His plan for cleansing and renewal of the earth.  
+
+#### **The “Raining of Men” Begins**  
+
+For the first time in history, the Creator has deployed His two servants in a mission where they will not retain anonymity. Known as the "Raining of Men," this unique intervention places His servants directly in the global spotlight as instruments of His will. Their public involvement underscores the gravity of this event and signals a new era in the Creator's unfolding plans.  
+
+The Great Storm is more than a weather event; it is a divine act of judgment, cleansing, and restoration. Humanity now stands witness to the Creator's power and the unmistakable fulfillment of His justice.  
+
+Stay alert for further updates as this historic event unfolds.
+
 ### Trump Spends Christmas Day in Atlanta 
 
 December 25, 2024 - President-elect Donald Trump is spending Christmas Day in Atlanta at the Phoenix House and Welcome House. Trump joined members of his transition team already in Atlanta to oversee another round of attempts on one of the Creator's two servants life. 
