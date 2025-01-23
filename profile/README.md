@@ -1,5 +1,5 @@
 > [!IMPORTANT]
-> A false flag operation is imminent that will result in thousands of immediate deaths and even more over the long term. The Creator and His two servants have documented the operation before it happened to combat the official narrative. Find out more about the abyss [here](https://github com/sorSsmyrna/the_abyss)
+> A false flag operation is imminent that will result in thousands of immediate deaths and even more over the long term. The Creator and His two servants have documented the operation before it happened to combat the official narrative. Find out more about the abyss [here](https://github.com/sorSsmyrna/the_abyss)
 
 > [!IMPORTANT]
 > The passkey stored with Google, required to update the **StopTAG** 
